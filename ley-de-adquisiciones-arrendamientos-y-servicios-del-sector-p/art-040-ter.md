@@ -1,4 +1,1 @@
-(ADICIONADO, P.O. 30 DE AGOSTO DE 2002) (F. DE E., P.O. 21 DE FEBRERO DE 2003)
-ARTÍCULO 40 TER.- La Comisión se constituirá de manera permanente y sus sesiones se llevarán a cabo cuando asistan la mayoría del total de los miembros con derecho a voto; los acuerdos y resoluciones se tornarán por la mayoría del total de los integrantes de la Comisión; en caso de no obtener consenso se realizará una segunda ronda que se definirá en acuerdo por la mayoría de los presentes.
-En caso de ausencia de quien presida las reuniones, el Director General podrá desempeñar estas funciones.
-A las reuniones de la Comisión, el Presidente de la Junta, a propuesta de los demás integrantes, podrá invitar a personas con amplia experiencia y conocimientos reconocidos en temas relacionados con los fines de la Comisión, para que opinen sobre los asuntos que sean sometidos a su consideración, los cuales contarán con derecho a voz pero sin voto. Así mismo, asistirán las dependencias o entidades contratantes.
+ARTÍCULO 40 TER.- (DEROGADO, P.O. 16 DE MARZO DE 2005)
