@@ -1,0 +1,9 @@
+TRANSITORIOS
+PRIMERO.- La presente Ley entrará en vigor a los treinta días después de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones que se opongan a la presente Ley.
+TERCERO.- Cualquier trámite que se esté realizando antes de la entrada en vigor de la presente Ley, se seguirá tramitando y se resolverá de conformidad con los ordenamientos vigentes en la materia, al momento de su presentación.
+CUARTO.- El Gobernador del Estado, expedirá dentro de los seis meses siguientes a la entrada en vigor de esta Ley, los reglamentos que previene este ordenamiento y las demás disposiciones administrativas necesarias.
+QUINTO.- El Consejo Estatal para el Desarrollo Rural Sustentable del Estado de Puebla, deberá constituirse en un plazo de tres meses a partir de la publicación de esta Ley en el Periódico Oficial del Estado.
+SEXTO.- El Gobernador del Estado con la participación del Consejo Estatal para el Desarrollo Rural Sustentable, dispone de seis meses a partir de la entrada en vigor de esta Ley, para formular y publicar el Programa Estatal de Desarrollo Rural Sustentable.
+EL GOBERNADOR, hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Heroica Ciudad de Puebla de Zaragoza, a los veintinueve días del mes de julio de dos mil cuatro.- Diputado Presidente.- CARLOS MANUEL MEZA VIVEROS.- Rúbrica.- Diputado Vicepresidente.- JOSÉ ROBERTO GRAJALES ESPINA.- Rúbrica.- Diputado Secretario.- ARMANDO PASCUAL HERRERA GUZMÁN.- Rúbrica.- Diputado Secretario.- MARTÍN MÁRQUEZ SILVA.- Rúbrica.
+Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Heroica Puebla de Zaragoza, a los veintinueve días del mes de julio del año dos mil cuatro.- El Gobernador Constitucional del Estado.- LICENCIADO MELQUIADES MORALES FLORES.- Rúbrica.- El Secretario de Gobernación.- MAESTRO EN DERECHO CARLOS ARREDONDO CONTRERAS.- Rúbrica.
