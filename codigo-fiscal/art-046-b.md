@@ -6,4 +6,5 @@ a).- Los libros y registros que formen parte de la contabilidad, solicitados en 
 b).- Seis días contados a partir del siguiente a aquél en que surta sus efectos la notificación de la solicitud respectiva, cuando los documentos sean de los que deba tener en su poder el contribuyente y se lo soliciten durante el desarrollo de la visita.
 (REFORMADO, P.O. 2 DE AGOSTO DE 1994)
 c).- Quince días contados a partir del siguiente a aquél en que surta sus efectos la notificación de la solicitud respectiva, en los demás casos.
-Los plazos a que se refiere este inciso se podrán ampliar por las autoridades fiscales por diez días más, cuando se trate de informes cuyo contenido sea difícil proporcionar o de conseguir.
+(REFORMADO, P.O. 17 DE DICIEMBRE DE 2001)
+Los plazos a que se refiere este inciso, se podrán ampliar por las autoridades fiscales por diez días más, cuando se trate de documentación o información de difícil obtención.
