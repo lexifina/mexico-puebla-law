@@ -1,0 +1,22 @@
+CODIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA
+Código publicado en la Sección Segunda del Periódico Oficial del Estado, el día 30 de abril de 1985.
+Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
+GUILLERMO JIMENEZ MORALES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a los habitantes del mismo sabed:
+Que por la Secretaría del H. Congreso se me ha dirigido el siguiente:
+EL HONORABLE CUADRAGESIMO NOVENO CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA,
+C O N S I D E R A N D O :
+Que por oficio número 6621 de fecha 13 de Noviembre de 1984 el Ciudadano Licenciado Guillermo Jiménez Morales, Gobernador del Estado, sometió a la consideración de este Honorable Congreso la Iniciativa del CODIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA.
+Que para cumplir con los trámites que establecen los Artículos 64 fracción I de la Constitución Política Estatal; 99, 105 y 141 fracción VI de la Ley Orgánica y Reglamentaria de este Poder Legislativo, se turnó dicha Iniciativa a la Comisión de Gobernación, Legislación, Puntos Constitucionales, Justicia y Elecciones, la que en Sesión Pública ordinaria celebrada el día 26 de Marzo del presente año presentó su Dictamen proponiendo la aprobación en lo general de la Iniciativa del Código Civil y en lo particular la modificación de diversos Artículos del referido Código, constituyéndose este Honorable Cuerpo Colegiado en Sesión Permanente para ese estudio una vez que fue leído el Dictamen.
+Que sin perjuicio de que la Unidad de Estudios y Proyectos Legislativos del Gobierno del Estado que tuvo a su cargo el Proyecto del Código Civil, realizó a partir del día 4 de Mayo de 1984, Audiencias Públicas celebradas en las Cabeceras de los Distritos de la Entidad con el fin de darle publicidad y recabar la opinión de los interesados en el mismo, al término de dichas Audiencias se formuló la Iniciativa que se estudia con las modificaciones que la Unidad de Estudios estimó necesarias.
+Por otra parte, y considerando la Comisión de Estudios de este Honorable Congreso la conveniencia de convocar a otras Audiencias Públicas para recabar el criterio y opinión de las personas físicas, instituciones y organizaciones públicas y privadas que lo desearan, las llevó a cabo a partir del día 14 de Diciembre de 1984, distribuyendo entre los interesados un ejemplar de la Iniciativa y recabando las opiniones de los que asistieron para el estudio que se realizaba.
+Cabe mencionar entre los asistentes a las Audiencias: A la Asociación de Abogados de Puebla, Colegio de Abogados y Agrupación Nacional de Abogados al Servicio del Estado de Puebla.
+Partidos: Socialista de los Trabajadores, Revolucionario de los Trabajadores, Auténtico de la Revolución Mexicana, Popular Socialista, de Acción Nacional, Socialista Unificado de México, Demócrata Mexicano, Revolucionario Institucional y Estatal de la Ugom-Roja.
+Confederación Regional Obrera Mexicana y Confederación de Trabajadores de México.
+Universidades: Cuauhtémoc, Autónoma de Puebla, Popular Autónoma del Estado de Puebla, de las Américas, del Valle de Puebla y Escuela Libre de Derecho.
+Asociación Nacional Cívica Femenil del Centro Sur y Consejo Estatal para la Participación de la Mujer.
+De todos los participantes se recibieron opiniones con relación al proyecto, que previamente analizadas por la Comisión de Estudio, algunas fueron tomadas en consideración.
+Que en Sesiones Posteriores fue aprobada la Iniciativa en lo general, y al ser estudiada en lo particular, se aprobaron las reformas propuestas por la Comisión Dictaminadora, modificándose asimismo del Dictamen los Artículos 478, 500, 798, 2321, 2373 de la Iniciativa y 1o. Transitorio.
+Que estando satisfechos además los requisitos de los Artículos 57 fracción I, 63 fracción I, 79 fracción VI de la Constitución Política del Estado; 1o., 183, 184 y 185 de la Ley Orgánica y Reglamentaria del Poder Legislativo.
+D E C R E T A :
+CODIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA
+DISPOSICIONES GENERALES
