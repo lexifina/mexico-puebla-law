@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE JULIO DE 2001)
+ARTÍCULO 198 ter.- Se impondrá de seis meses a tres años de prisión y multa de cincuenta a doscientos días de salario, a quien de manera dolosa o culposa, sustituya, trafique o haga uso indebido de documentos oficiales, relativos al programa de verificación de vehículos automotores; así como a quien condicione ilícitamente la aprobación de la verificación vehicular a la entrega de dádivas en efectivo o en especie, o por cualquier motivo cobre por la verificación una cantidad superior a la autorizada oficialmente.
