@@ -1,0 +1,14 @@
+TRANSITORIOS
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se abroga la Ley de Fraccionamientos del Estado de Puebla, publicada en el Periódico Oficial del Estado, con fecha veinte de diciembre de mil novecientos setenta y cuatro.
+TERCERO.- Se derogan todas las disposiciones que se opongan a la presente Ley.
+CUARTO.- Los Ayuntamientos en el ámbito de sus jurisdicciones expedirán los reglamentos de esta Ley, según corresponda, dentro de los sesenta días siguientes a la entrada en vigor de esta Ley.
+La Secretaría deberá apoyar a los Ayuntamientos en la elaboración de sus reglamentos, y emitirá su opinión sobre los anteproyectos que se le presente, dentro de los 15 días siguientes a que se le requiera.
+QUINTO.- En tanto no se expidan los reglamentos, acuerdos y demás disposiciones administrativas correspondientes, continuarán aplicándose, en lo que no se oponga a esta Ley, las disposiciones reglamentarias y administrativas vigentes a la fecha de entrada en vigor de la presente Ley.
+SEXTO.- Los recursos y demás trámites pendientes de resolución administrativa o técnica, se resolverán conforme a las disposiciones vigentes al momento de su presentación.
+SÉPTIMO.- Las autoridades municipales en el ámbito de su competencia, tendrán la obligación de vigilar, denunciar y detener la construcción o conformación de fraccionamientos, divisiones, subdivisiones, lotificaciones, relotificaciones, fusiones, segregaciones, modificaciones y desarrollo en condominio, en contravención de la presente Ley.
+OCTAVO.- Los asuntos relacionados con autorizaciones, licencias, procedimientos y constancias de compatibilidad, que se encuentren en trámite, seguirán tramitándose hasta su conclusión.
+Se reconoce plena validez a las autorizaciones y constancias de compatibilidad legalmente expedidas con base en la legislación que se deroga, durante la vigencia que le corresponda.
+NOVENO.- Las autoridades municipales en el ámbito de su competencia, podrán implementar programas de regularización de aquellos fraccionamientos que ya estén edificados.
+EL GOBERNADOR, hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Heroica Ciudad de Puebla de Zaragoza, a los trece días del mes de noviembre de dos mil tres.- Diputado Presidente.- HUMBERTO VÁZQUEZ ARROYO.- Rúbrica.- Diputada Vicepresidenta.- MARÍA LEONOR A. POPÓCATL GUTIÉRREZ.- Rúbrica.- Diputado Secretario.- DANIEL ANTELIZ MAGAÑA.- Rúbrica.- Diputado Secretario.- ELISEO PÉREZ SÁNCHEZ.- Rúbrica.
+Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Heroica Puebla de Zaragoza, a los trece días del mes de noviembre de dos mil tres.- El Gobernador Constitucional del Estado.- LICENCIADO MELQUIADES MORALES FLORES.- Rúbrica.- El Secretario de Gobernación.- MAESTRO EN DERECHO CARLOS ARREDONDO CONTRERAS.- Rúbrica.
