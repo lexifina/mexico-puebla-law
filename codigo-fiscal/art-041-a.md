@@ -6,5 +6,11 @@ I.- Tratándose de la omisión en la presentación de una declaración periódic
 Cuando la omisión sea de una declaración de las que se conozca de manera fehaciente la cantidad a la que le es aplicable la tasa, cuota o tarifa respectiva, las autoridades fiscales podrán hacer efectiva al contribuyente con carácter provisional, una cantidad igual a la contribución que a este corresponda determinar sin que el pago lo libere de presentar la declaración omitida.
 Si el contribuyente o responsable solidario presenta la declaración omitida antes de que se le haga efectiva la cantidad resultante conforme a lo previsto en esta fracción, queda liberado de hacer el pago determinado provisionalmente.
 Si la declaración se presenta después de haberse efectuado el pago provisional determinado por la Autoridad, éste se disminuirá del importe que se tenga que pagar con la declaración que se presente.
-II.- Imponer la multa que corresponda en los términos de este Código y requerir la presentación del documento omitido en un plazo de 6 días. Si no se atiende el requerimiento se impondrá la multa correspondiente. La Autoridad en ningún caso formulará más de un requerimiento por una misma omisión.
+(REFORMADA, P.O. 11 DE ABRIL DE 2003)
+II.- Imponer la multa que corresponda en los términos de este Código, por cada requerimiento no atendido.
+Para efectos del párrafo anterior, se estará a lo siguiente:
+La autoridad en ningún caso formulará más de tres requerimientos por una misma omisión.
+Para la presentación del documento omitido, se otorgarán los siguientes plazos:
+a).- Quince días para el primer requerimiento.
+b).- Seis días para el segundo y tercer requerimiento.
 III.- Embargar precautoriamente, los bienes o la negociación, en términos de los párrafos segundo y tercero del artículo 86 de este Código, cuando el contribuyente haya omitido presentar declaraciones en el último ejercicio o cuando no atienda tres requerimientos de la Autoridad en los términos de la fracción segunda de este artículo por una misma omisión, salvo tratándose de declaraciones en que bastará con no atender un requerimiento.
