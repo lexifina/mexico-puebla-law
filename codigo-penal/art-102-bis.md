@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 2 DE SEPTIEMBRE DE 1998)
+Artículo 102 bis.- Si la persona sentenciada se encuentra gozando de su libertad caucional, el depositante podrá autorizar que la garantía que haya exhibido para tal efecto, se aplique primero a la reparación del daño, a la multa y pago de la multa que conmuta la pena, ordenándose la devolución del remanente, en su caso, a quien exhibió la caución. Si el importe de la garantía fuere insuficiente, la persona sentenciada deberá cubrir la diferencia en términos de Ley.

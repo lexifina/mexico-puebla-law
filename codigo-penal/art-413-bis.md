@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE SEPTIEMBRE DE 1998)
+Artículo 413 bis.- Al que sin consentimiento realizare o pintare signos, leyendas, dibujos o cualquiera otra manifestación gráfica, en una escuela, biblioteca, edificio público, museo, monumento u obra de arte, o se considere parte del patrimonio histórico, artístico o cultural del Estado, se le impondrá prisión de sesenta días a seis años y multa de veinte a quinientos días de salario.
