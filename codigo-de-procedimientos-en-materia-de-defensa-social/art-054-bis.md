@@ -6,5 +6,13 @@ III.- Estar presente en todas las diligencias y actos procesales en los que el i
 IV.- Recibir atención médica de urgencia o tratamiento psicológico, cuando lo requiera;
 (REFORMADA, P.O. 24 DE MARZO DE 2000)
 V.- Proporcionar al Ministerio Público o al Juez directamente, todos los datos o medios de prueba con que cuente para acreditar los elementos del delito, así como la procedencia y monto de la reparación del daño; y
-VI.- Las demás que señalen las leyes.
-El Juez de oficio mandará citar a la víctima, al ofendido o a su representante legal para que manifieste lo que a su derecho convenga.
+(REFORMADA, P.O. 4 DE SEPTIEMBRE DE 2002)
+VI.- Ser informado de los derechos que en su favor señala la Constitución Política de los Estados Unidos Mexicanos y demás legislación estatal que lo establezca;
+(ADICIONADA, P.O. 4 DE SEPTIEMBRE DE 2002)
+VII.- Que se le repare el daño, en los casos en que proceda; para lo cual el Ministerio Público deberá solicitarlo al Juez que conozca del proceso;
+(ADICIONADA, P.O. 4 DE SEPTIEMBRE DE 2002)
+VIII.- Cuando la víctima o el ofendido sean menores de edad, no estarán obligados a carearse con el inculpado o procesado, si se tratare de los delitos de violación o violación equiparada, plagio o secuestro;
+(ADICIONADA, P.O. 4 DE SEPTIEMBRE DE 2002)
+IX.- Solicitar a las autoridades competentes para sí o para los sujetos vinculados a ella, las medidas y providencias necesarias tendientes a proteger su integridad corporal, domicilio, posesiones o derechos; cuando existan datos fundados de que éstos puedan ser afectados por el o los responsables del delito o por terceros; y
+(ADICIONADA, P.O. 4 DE SEPTIEMBRE DE 2002)
+X.- Las demás que señalen las Leyes.
