@@ -1,4 +1,4 @@
-ARTICULOS TRANSITORIOS
+ARTICULOS TRANSITORIOS.
 Artículo 1°. Esta Constitución se promulgará y publicará el 15 de septiembre del presente año y comenzará a regir el día 1°. de octubre del mismo. Las autoridades correspondientes comenzarán desde luego a dictar las medidas necesarias para hacer efectiva su fiel observancia.
 Artículo 2°. Por el término de diez años no podrán ser electos para el desempeño de ningún cargo o empleo en la Administración Pública los individuos que hayan tomado las armas en favor de la Usurpación iniciada con la infidencia y traición del 13 de febrero de 1913 y que terminó con la ocupación de la ciudad de México por el Ejército Constitucionalista en agosto de 1914.
 Artículo 3°. La XXIV Legislatura del Estado, comenzará a funcionar el día 1°. de enero de 1919.
