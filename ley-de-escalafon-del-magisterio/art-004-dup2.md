@@ -1,0 +1,1 @@
+ARTICULO 4o.- Al vencimiento de un año de funcionamiento de la Comisión de Escalafón, deberán quedar clasificados los maestros en servicio oficial, y de acuerdo con esa clasificación irán ocupando las plazas que justamente merezcan por el lugar que les corresponda en el escalafón.

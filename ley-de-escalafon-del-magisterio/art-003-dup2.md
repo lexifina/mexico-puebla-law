@@ -1,0 +1,1 @@
+ARTICULO 3o.- A los educadores de los Jardines de Niños, con más de cinco años de servicios en estos establecimientos, que no posean el diploma correspondiente a su especialidad, se les concede el plazo de un año, a partir de la promulgación de esta misma Ley, para que satisfagan tal requisito. En caso contrario se cubrirán las plazas con el personal que cumpla con ese requisito.

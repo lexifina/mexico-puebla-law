@@ -1,0 +1,1 @@
+ARTICULO 5o.- Por esta única vez se convocará al magisterio del Estado, para la elección de la Comisión de Escalafón, al mes siguiente de publicada esta propia Ley, en la fecha que señale el Director General de Educación y de acuerdo con los ordenamientos respectivos. En consecuencia, el período de funcionamiento de la citada Comisión comprenderá hasta junio del año de 1944.

@@ -1,0 +1,1 @@
+ARTICULO 2o.- A los maestros no titulados que presten sus servicios en planteles educativos del Estado, se les concede un plazo de seis meses, a partir de la fecha de la publicación de la presente Ley, para que comprueben su idoneidad en los términos legales. De lo contrario, serán substituídos por maestros que satisfagan los requisitos fijados.
