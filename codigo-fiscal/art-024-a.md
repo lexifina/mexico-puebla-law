@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE DICIEMBRE DE 2000)
+ARTICULO 24 A.- En el caso de que las demás disposiciones de este Código hagan referencia a la contabilidad, se entenderá que la misma se integra por los sistemas y registros contables que el contribuyente utilice para realizar sus operaciones, cuentas especiales, libros, registros sociales, equipos y sistemas electrónicos de registro fiscal, así como por la documentación comprobatoria de los asientos respectivos y los comprobantes de haber cumplido con las disposiciones fiscales.
