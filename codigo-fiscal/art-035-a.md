@@ -6,7 +6,7 @@ Para tales efectos la Autoridad Fiscal tomará en consideración el Indice Nacio
 En los casos en que el Indice Nacional de Precios al Consumidor del mes anterior al más reciente del período, no haya sido publicado por el Banco de México, la actualización de que se trate se realizará aplicando el último índice mensual publicado.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1995)
 Para efectos de aplicación, el factor de actualización deberá calcularse hasta el diezmilésimo.
-(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1995)
-En las contribuciones, la actualización se calculará de conformidad con lo dispuesto en este artículo sobre el total excluyendo los propios recargos, los gastos de ejecución y la indemnización a que se refiere el segundo párrafo del artículo 33 de este Código.
+(REFORMADO, P.O. 27 DE FEBRERO DE 2004)
+En las contribuciones, la actualización se calculará de conformidad con lo dispuesto en este artículo sobre el total excluyendo los propios recargos, los gastos de ejecución y la indemnización a que se refiere el tercer párrafo del artículo 33 de este Código.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1995)
 Las cantidades actualizadas conservan la naturaleza jurídica que tenían antes de la actualización.
