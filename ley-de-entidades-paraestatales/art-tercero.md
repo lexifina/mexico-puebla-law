@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- En tanto el Ejecutivo del Estado dicte las disposiciones correspondientes para que los Órganos de Gobierno y de vigilancia de las Entidades Paraestatales se ajusten a esta Ley, seguirán funcionando los órganos existentes de acuerdo con sus leyes o decretos de creación.
