@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE JULIO DE 1994)
+Artículo 99 Bis.- En caso de que el error a que se refiere el inciso a) de la fracción XI del artículo 26 sea vencible, la punibilidad será la del delito culposo si el hecho de que se trata admite dicha forma de realización; si el error vencible es el previsto en el inciso b) de dicha fracción, la punibilidad será hasta de las dos terceras partes del delito de que se trate.
