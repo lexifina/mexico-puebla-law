@@ -11,3 +11,4 @@ Por el Distrito Electoral de Cholula, Moisés Blanca, Diputado Presidente.- Por 
 Por tanto, mando se imprima, publique por bando solemne y circule para su debido cumplimiento.
 CONSTITUCION Y REFORMAS.
 Palacio del Departamento Ejecutivo. Puebla de Zaragoza, 8 de septiembre de 1917.- El Gobernador del Estado.- Alfonso Cabrera,- El Srio. Gral. de Gob,- Lic. Miguel Moto.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE CONSTITUCIÓN.
