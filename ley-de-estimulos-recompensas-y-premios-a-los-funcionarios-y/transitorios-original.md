@@ -1,0 +1,4 @@
+TRANSITORIO:
+ARTICULO UNICO.- Esta Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+EL GOBERNADOR hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo en la Heroica Ciudad de Puebla de Zaragoza a los veintiocho días del mes de agosto de mil novecientos setenta y ocho.- Lic. Jesús Morales Flores, D. P.- Fausto Palomino Gazca, D. S.- Dr. Román de Ita Flores, D. S.- Rúbricas.
+Por tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo en la Heroica Puebla de Zaragoza a los veintiocho días del mes de agosto de mil novecientos setenta y ocho.- El Gobernador Constitucional del Estado, Alfredo Toxqui Fernández de Lara.- Rúbrica.- El Secretario General de Gobierno, Lic. Carlos Trujillo Pérez.- Rúbrica.
