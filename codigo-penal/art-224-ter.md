@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 16 DE AGOSTO DE 1999)
-Artículo 224 Ter.- Quien por cualquier medio, sea directo, mecánico o con soporte informático, electrónico o de cualquier otro tipo, venda, publique, distribuya, exhiba y difunda; transporte o posea con algunos de estos fines, material pornográfico infantil, se le impondrá prisión de dos a cinco años y multa de diez a cien días de salario.
+(REFORMADO, P.O. 30 DE ABRIL DE 2004)
+Artículo 224 Ter.- Además del decomiso de los objetos, instrumentos y productos del delito, al que por cualquiera que fuera el medio, fije, grabe, imprima, promueva, arriende, transmita, venda, publique, distribuya, exhiba y difunda; transporte o posea con algunos de estos fines, material pornográfico infantil, se le impondrá prisión de ocho a catorce años y multa de cien a mil doscientos días de salario.
