@@ -1,0 +1,7 @@
+TRANSITORIOS
+PRIMERO.- La presente Ley deberá publicarse en el Periódico Oficial del Estado y entrará en vigor el primero de enero de dos mil cinco.
+SEGUNDO.- Se abroga la Ley que Crea el Consejo Estatal de Ciencia y Tecnología, publicada en el Periódico Oficial del Estado el primero de febrero de 1983.
+TERCERO.- Las erogaciones que deriven de la aplicación de la presente Ley, estarán sujetas a la suficiencia presupuestal que para cada ejercicio fiscal apruebe el Honorable Congreso del Estado, así como la que aprueben los Ayuntamientos en sus respectivos presupuestos.
+CUARTO.- Se derogan todas las disposiciones que se opongan a la presente Ley.
+EL GOBERNADOR, hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Heroica Ciudad de Puebla de Zaragoza, a los quince días del mes de diciembre de dos mil cuatro.- Diputado Presidente.- JOAQUÍN MALDONADO IBARGÜEN.- Rúbrica.- Diputado vicepresidente.- JOSÉ LUIS MÁRQUEZ MARTÍNEZ.- Rúbrica.- Diputado Secretario.- JUAN FRANCISCO MENÉNDEZ PRIANTE.- Rúbrica.- Diputado Secretario.- ODÓN ABAD SIDAR FIERO.- Rúbrica.
+Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Heroica Puebla de Zaragoza, a los quince días del mes de diciembre del año dos mil cuatro.- El Gobernador Constitucional del Estado.- LICENCIADO MELQUIADES MORALES FLORES.- Rúbrica.- El Secretario de Gobernación.- LICENCIADO RÓMULO S. ARREDONDO GUTIÉRREZ.- Rúbrica.
