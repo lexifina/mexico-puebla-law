@@ -1,3 +1,3 @@
 P.O. 4 DE MAYO DE 1979.
-DECRETO QUE REFORMA DIVERSOS ARTÍCULOS DE LA CONSTITUCIÓN.
+DECRETO QUE REFORMA DIVERSOS ARTICULOS DE LA CONSTITUCION.
 Las presentes reformas y adiciones entrarán en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
