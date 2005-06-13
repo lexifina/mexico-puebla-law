@@ -14,5 +14,7 @@ VII.- Que se le repare el daño, en los casos en que proceda; para lo cual el Mi
 VIII.- Cuando la víctima o el ofendido sean menores de edad, no estarán obligados a carearse con el inculpado o procesado, si se tratare de los delitos de violación o violación equiparada, plagio o secuestro;
 (ADICIONADA, P.O. 4 DE SEPTIEMBRE DE 2002)
 IX.- Solicitar a las autoridades competentes para sí o para los sujetos vinculados a ella, las medidas y providencias necesarias tendientes a proteger su integridad corporal, domicilio, posesiones o derechos; cuando existan datos fundados de que éstos puedan ser afectados por el o los responsables del delito o por terceros; y
-(ADICIONADA, P.O. 4 DE SEPTIEMBRE DE 2002)
-X.- Las demás que señalen las Leyes.
+(ADICIONADA, P.O. 13 DE DICIEMBRE DE 2004)
+X.- Interponer el recurso de apelación en contra de las sentencias de primera instancia, solo cuando la impugnación verse sobre las cuestiones relativas a la reparación del daño proveniente de delito, y
+(REFORMADA, P.O. 13 DE DICIEMBRE DE 2004)
+XI.- Las demás que señalen las Leyes.

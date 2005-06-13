@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2004)
+Artículo 186 Bis.- Habrá delincuencia organizada cuando un grupo estructurado de tres o más personas actúen concertada y jerárquicamente, con el propósito de realizar conductas en forma permanente o reiterada o con fines predominantemente lucrativos que, por sí o unidas a otras, tengan como fin o resultado, la comisión de alguno o algunos de los delitos previstos en este Código.
+Al miembro de delincuencia organizada se le sancionará con prisión de uno a diez años y multa de doscientos cincuenta a quince mil días de salario, independientemente de la sanción que le corresponda por el delito que cometiere.
+Cuando el miembro de delincuencia organizada realice o tenga asignadas en ésta, funciones de administración, dirección o supervisión, la sanción señalada en el párrafo anterior se aumentará hasta en una mitad.
