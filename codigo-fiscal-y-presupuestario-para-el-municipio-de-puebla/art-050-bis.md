@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2005)
+Artículo 50 Bis.- La identificación, clasificación, localización y levantamiento de datos de predios, comprende las acciones y trabajos necesarios para determinar sus características, tales como dimensiones, ubicación, uso y la información socioeconómica y estadística que requiere el catastro municipal.
+Los registros catastrales estarán integrados de tal manera que, bajo el concepto de registro único, permitan su aprovechamiento múltiple y se puedan generar agrupamientos, ya sean numéricos, alfabéticos, gráficos, estadísticos, índices de referencia y de imágenes.
+La Dirección de Catastro administrará, controlará, conservará, actualizará y archivará los registros catastrales, los que podrán ser objeto de altas, bajas y cambios, entendiéndose por:
+l. Altas.- Nuevos registros en el padrón que sean resultantes de la inscripción o regularización de un predio, de la inscripción de fraccionamientos o régimen de condominio, de la división de un predio o del registro de predios omisos;
+II. Bajas.- Cancelación de registros, debido al desglose de la totalidad de la superficie en lotes, a la fusión de predios o al existir duplicidad de registros, así como otras irregularidades debidamente acreditadas; y
+III. Cambios.- Modificaciones en los datos registrados de acuerdo con documentos presentados por los particulares y autoridades diversas, como son escrituras, avisos de enajenación, planos de construcción, ratificación de medidas de terreno, sentencias de usucapión ejecutoriadas, cambio de domicilio, entre otros.

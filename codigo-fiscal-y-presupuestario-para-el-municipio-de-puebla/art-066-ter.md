@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2005)
+Artículo 66 Ter.- La actualización de la zonificación catastral y de los valores unitarios que ocurra en el transcurso de un ejercicio deberá ser aprobada por el Congreso y se elaborará en las siguientes hipótesis normativas:
+La actualización de la zonificación catastral y de los valores unitarios, se llevará a cabo mediante la revisión de las características establecidas en el artículo 66 bis, cuando en una de las zonas existan cambios importantes en su infraestructura o equipamiento urbano, cuando se localicen o constituyan fraccionamientos nuevos, asentamientos irregulares o cualquier otro desarrollo urbano o cuando por algún motivo sufran cambios los valores de mercado de la zona.
+La actualización de la zonificación catastral y de los valores unitarios que ocurra en el transcurso de un ejercicio, deberá ser elaborado conforme al siguiente procedimiento:
+Aplicando el Índice del Costo de la Construcción Residencial, o el Índice Nacional de Precios al Consumidor, determinados conforme a la legislación aplicable y por las autoridades competentes, ambos aplicables en la fecha de la actualización.
+Las propuestas de zonificación, de valores unitarios y su actualización serán elaboradas por el Director de Catastro, sometidas a la consideración del Tesorero.
+Para tal efecto la Dirección de Catastro efectuará la investigación de la infraestructura, equipamiento urbano, valor de zona, de los costos de mano de obra y materiales de construcción, así como los valores del mercado inmobiliario que servirán de base a la propuesta de tablas de valores y zonificación.
+La Dirección de Catastro mantendrá el acceso directo al Sistema Municipal de Información Inmobiliaria.

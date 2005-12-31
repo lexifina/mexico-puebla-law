@@ -1,0 +1,7 @@
+P.O. 30 DE DICIEMBRE DE 2005.
+PRIMERO.- El presente Decreto entrará en vigor el al día siguiente de su publicación en el Periódico Oficial.
+SEGUNDO.- Se derogan las disposiciones que se opongan al presente Decreto.
+TERCERO.- Los convenios, actos jurídicos o administrativos, títulos, acuerdos, órdenes y circulares que a la fecha de la entrada en vigor del presente Decreto, se refieran a la DGDUE deberán ser considerados haciendo referencia a la SAU.
+CUARTO.- Serán válidos los actos administrativos pronunciados por la Dirección de Registro y Fiscalización. Los procedimientos que haya dicha Dirección iniciado y no se encuentren concluidos a la fecha de inicio de la vigencia del presente Decreto, serán continuados por el Departamento de Registro y Fiscalización de la Dirección de Ingresos, ambas de la Tesorería.
+QUINTO.- Las disposiciones legales, acuerdos, órdenes, circulares, en que se haga mención de la Dirección de Registro y Fiscalización, se entenderá, a la fecha de entrada en vigor del presente Decreto, que se refieren a la Dirección de Ingresos.
+SEXTO.- Las disposiciones legales, acuerdos, órdenes, circulares, actos administrativos, avalúos y en general todos los actos relacionados con el desarrollo de operaciones catastrales, en que se haga mención al Departamento de Catastro, se entenderá a la fecha de entrada en vigor del presente Decreto, que se refieren a la Dirección de Catastro de la Tesorería.

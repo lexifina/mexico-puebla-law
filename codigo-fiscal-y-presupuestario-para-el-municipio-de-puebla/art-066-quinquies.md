@@ -1,0 +1,14 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2005)
+Artículo 66 Quinquies.- El Consejo Municipal de Catastro estará integrado por el Tesorero, el Director de Catastro y el Director de Ingresos, quienes tendrán respectivamente el carácter de Presidente, Secretario y Vocal, por un representante del Colegio de Valuadores del Estado de Puebla, un representante del Colegio de Arquitectos, los representante (sic) de las Universidades, Colegios, Cámaras, profesionales especializados que designe el Presidente, quienes también tendrán el carácter de vocales.
+Los integrantes del Consejo Municipal de Catastro serán removidos de sus cargos a solicitud del órgano o institución que los hubiere propuesto o por negarse injustificadamente a participar en las sesiones del Consejo.
+Todos los integrantes del Consejo Municipal de Catastro tendrán derecho a voz y voto y sus decisiones se tomarán por mayoría de los presentes en cada sesión. En todo caso el Presidente tendrá voto de calidad en caso de empate.
+Las integrantes del Consejo Municipal de Catastro puedan (sic) nombrar un sustituto.
+Las sesiones se sujetarán a lo siguiente:
+I. Las sesiones del Consejo Municipal de Catastro serán ordinarias y extraordinarias.
+a) Son ordinarias las que se celebren de manera cotidiana, de acuerdo a la periodicidad establecida por el propio Consejo en la primera sesión del año, la que deberá ser convocada por el Presidente dentro del primer mes de cada ejercicio.
+b) Son extraordinarias las que sean convocadas para el desahogo de algún asunto urgente.
+II. Las sesiones del Consejo Municipal de Catastro se realizarán con la asistencia de cuando menos: la mitad más, uno de sus miembros;
+III. El Presidente será responsable de convocar a los miembros del Consejo Municipal de Catastro" a sus sesiones ordinarias y extraordinarias. Para tal efecto, se entenderá que cada miembro tiene como domicilio el que oficialmente corresponda al órgano o institución que lo designa;
+IV. El Presidente podrá permitir la participación dentro del Consejo Municipal de Catastro de personas distintas a las referidas en el primer párrafo de este artículo, las que tendrán el carácter de invitadas y podrán emitir opiniones técnicas, pero no tendrán derecho a voto;
+V. Las sesiones ordinarias y extraordinarias serán presididas por el Presidente del Consejo Municipal de Catastro, quien establecerá previamente el orden del día, haciéndolo del conocimiento de los demás miembros con una anticipación de por lo menos 72 horas previas a la sesión si es ordinaria o de 24 si es extraordinaria, indicando en todo caso el domicilio, día y la hora en que se desarrollará; y
+VI. De cada sesión el Secretario del Consejo Municipal de Catastro levantará el acta correspondiente, misma que será firmada por los miembros que participen en la misma, en su caso, el Secretario hará constar la presencia del miembro que se niegue a firmar.
