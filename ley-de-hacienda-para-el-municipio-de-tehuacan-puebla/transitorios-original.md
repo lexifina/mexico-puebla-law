@@ -1,0 +1,7 @@
+ARTÍCULOS TRANSITORIOS
+PRIMERO.- La presente Ley deberá publicarse en el Periódico Oficial del Estado y entrará en vigor el primero de enero de dos mil seis.
+SEGUNDO.- Se derogan las disposiciones que se opongan al presente Decreto.
+TERCERO.- Los procedimientos que a la entrada en vigor del presente Decreto se encuentren pendientes de resolución, serán concluidos de conformidad con la Ley de Hacienda Municipal del Estado de Puebla.
+CUARTO.- Las disposiciones legales, acuerdos, órdenes, circulares, en que se haga mención a la Ley de Hacienda Municipal del Estado de Puebla, se entenderá, a la fecha de entrada en vigor del presente Decreto, que se refieren a la Ley de Hacienda del Municipio de Tehuacán.
+EL GOBERNADOR, hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Heroica Ciudad de Puebla de Zaragoza, a los ocho días del mes de diciembre de dos mil cinco.- Diputada Presidenta.- EDITH CID PALACIOS.- Rúbrica.- Diputado Vicepresidente.- PERICLES OLIVARES FLORES.- Rúbrica.- Diputado Secretario.- ÓSCAR ANGUIANO MARTÍNEZ.- Rúbrica.- Diputado Secretario.- JUAN AGUILAR HERNÁNDEZ.- Rúbrica.
+Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Heroica Ciudad de Puebla de Zaragoza, a los nueve días del mes de diciembre del año dos mil cinco.- El Gobernador Constitucional del Estado.- LICENCIADO MARIO P. MARÍN TORRES.- Rúbrica.- El Secretario de Gobernación.- LICENCIADO JAVIER LÓPEZ ZAVALA.- Rúbrica.
