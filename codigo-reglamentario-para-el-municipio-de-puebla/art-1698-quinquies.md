@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
+Artículo 1698 Quinquies.- Para los escolares de los niveles de educación básica y media superior de instituciones tanto públicas como privadas que soliciten información, tendrán acceso al material Bibliográfico y Hemerográfico del Archivo, los que deberán presentar una identificación o credencial actualizada de su institución educativa o del Instituto Federal Electoral, según sea el caso.

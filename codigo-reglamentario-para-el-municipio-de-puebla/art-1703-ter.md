@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
+Artículo 1703 Ter.- Los coordinadores administrativos que refiere la fracción III, del artículo anterior, nombrarán un suplente, el cual tendrá como responsabilidad cumplir con lo establecido por el artículo 1689 Bis de este Capítulo, así como coordinar su ejecución en cada una de la (sic) Direcciones y Jefaturas que conforman las Dependencias y Organismos Descentralizados. Las funciones que se refieran a la toma de decisiones quedan reservadas exclusivamente al Coordinador Administrativo.

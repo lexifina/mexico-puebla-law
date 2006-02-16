@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
+Artículo 1696 Bis.- El Secretario del Honorable Ayuntamiento es la autoridad superior del Archivo General Municipal, quien delegará atribuciones al Director del Archivo General, las resoluciones de los jefes de departamento y empleados, serán sometidos a su consideración, acuerdo o decisión. Dictará todas las medidas que estime eficaces para la observancia de este Capítulo.
