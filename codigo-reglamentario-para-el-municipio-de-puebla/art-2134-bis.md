@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
+Artículo 2134 Bis.- En funciones de lucha libre, podrá autorizar el Comisionado en turno la substitución de un luchador que por causas de fuerza mayor no se haya presentado, por otro de igual categoría, pero será obligación de la Empresa anunciar por los medios que tenga a su alcance, al público asistente al evento, el cambio autorizado por la Comisión y si se tratara de la lucha estelar, deberá anunciarse al público que la persona que no este de acuerdo con el cambio, podrá solicitar la devolución del importe de su boleto.

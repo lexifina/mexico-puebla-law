@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
+Artículo 2190 Bis.- Cuando una pelea se haya pactado en un peso determinado de kilos (peso de contrato) y uno de los contendientes se excede de dicho peso incluyendo los quinientos gramos de tolerancia señalados en el artículo 2189 Ter del presente Capítulo, aun cuando la Comisión autorice el encuentro por no haber una diferencia de peso mayor que la señalada en la Tabla de Diferencias, el boxeador que se haya excedido de peso, estará obligado a indemnizar a su contrincante con el 25% de los sueldos que vaya a percibir por la pelea.

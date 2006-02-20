@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
+Artículo 2218 Ter.- Las vendas para las manos de los boxeadores profesionales serán de gasa con una longitud máxima de nueve metros y con un ancho no mayor de cinco centímetros, para cada mano. Se sujetarán con tela adhesiva que no podrá tener una longitud mayor de un metro cincuenta centímetros y un ancho máximo de cuatro centímetros para cada mano. La tela adhesiva sólo podrá usarse sobre el dorso de la mano, alrededor de la muñeca y entre los dedos para sujetar el vendaje, quedando prohibido ponérsela sobre los nudillos.

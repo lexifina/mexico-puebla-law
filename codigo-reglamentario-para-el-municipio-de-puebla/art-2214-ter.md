@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
+Artículo 2214 Ter.- Si un boxeador o luchador, injustificadamente no respeta e incumple el compromiso contraído por su representante con una empresa, independientemente de que el sueldo que iba a percibir se tome en cuenta para los efectos de la garantía a que se refiere la fracción III del artículo 2203 del presente Capítulo, estará obligado a pagar a su representante el porcentaje que le correspondía por la pelea que no cumplió y a indemnizar a la empresa por los daños causados, siempre y cuando ésta lo solicite.
