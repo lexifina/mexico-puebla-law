@@ -1,0 +1,38 @@
+Artículo 1821.- Las sanciones por infracción a las disposiciones que se disponen en el presente Capítulo serán impuestas por el Director de Ecología. Las sanciones que se aplicarán por violación a las disposiciones contenidas en el presente Capítulo, consistirán en:
+I. Amonestación;
+II. Apercibimiento;
+III. Multa, conforme a la siguiente tabla:
+SUPUESTO NORMATIVOINFRACCIÓN
+1.- Por carecer del dictamen favorable de la Dirección de Ecología, en los giros comerciales para los que se requiera, de conformidad con el presente Capítulo y las disposiciones de este Código Reglamentario Municipal
+De 10 a 175 días de Salario Mínimo Vigente en el Municipio de Puebla
+2.- Por sobrepasar los límites establecidos en la normatividad ambiental vigente o causar molestias a la ciudadanía, al no controlar las emisiones contaminantes a la atmósfera procedente de fuentes fijas de competencia municipal
+De 10 a 350 días de Salario Mínimo Vigente en el Municipio de Puebla
+3.- Por no dar aviso a la autoridad competente de las fallas en los equipos de control de contaminantes a la atmósfera en fuentes fijas de competencia municipal
+De 20 a 350 días de Salario Mínimo Vigente en el Municipio de Puebla
+4.- Por falta de permiso de la Dirección de Ecología para efectuar combustión a cielo abierto
+De 20 a 350 días de Salario Mínimo Vigente en el Municipio de Puebla
+5.- Por carecer de inscripción en el Padrón Municipal de giros de competencia municipal potencialmente emisores de contaminación ostensible a la atmósfera
+De 20 a 175 días de Salario Mínimo Vigente en el Municipio de Puebla
+6.- Por descarga al sistema de drenaje municipal, cauces naturales o al subsuelo aguas, productos o líquidos residuales provenientes de procesos cuyos parámetros estén fuera de las normas contempladas en la legislación y reglamentación ambiental vigente
+De 20 a 1500 días de Salario Mínimo Vigente en el Municipio de Puebla
+SUPUESTO NORMATIVOINFRACCIÓN
+7.- Por contaminar con residuos y no manejarlos, transportarlos y disponerlos adecuadamente de conformidad con la legislación ambiental vigente
+De 15 a 50 días de Salario Mínimo Vigente en el Municipio de Puebla
+8.- Por realizar poda o derribo sin la autorización municipal, por unidad, independientemente de reparar el daño causado
+De 20 a 175 días de Salario Mínimo Vigente en el Municipio de Puebla
+9.- Los giros comerciales, industriales o de servicios que emitan ruido o vibraciones a la atmósfera que rebasen los niveles máximos permisibles de la normatividad vigente, o que causen molestias a la ciudadanía
+De 15 a 65 días de Salario Mínimo Vigente en el Municipio de Puebla
+10.- Por carecer de bitácora de operación y mantenimiento de sus equipos de control anticontaminantes
+De 10 a 20 días de Salario Mínimo Vigente en el Municipio de Puebla
+11.- Por almacenar inadecuadamente o sin permiso de la autoridad competente residuos o substancias consideradas como peligrosas o contaminantes, así como abandonar en la vía pública o sitios públicos residuos provenientes de clínicas u hospitales
+De 35 a 300 días de Salario Mínimo Vigente en el Municipio de Puebla
+12.- Por carecer de equipo y autorización para la incineración o traslado de residuos y sustancias peligrosas por parte de la autoridad competente
+De 10 a 200 días de Salario Mínimo Vigente en el Municipio de Puebla
+13.- Cuando las contravenciones a la reglamentación municipal vigente a que se refiere esta fracción, conlleven un riesgo de desequilibrio ecológico por casos de contaminación con repercusiones peligrosas para los ecosistemas, sus componentes o la salud pública, la sanción aplicable será
+De 50 a 3000 días de Salario Mínimo Vigente en el Municipio de Puebla
+Las multas señaladas en esta fracción, se aplicarán sin perjuicio de lo que señalan otros capítulos del presente Código Reglamentario y las demás leyes y demás disposiciones jurídicas que resulten aplicables al caso concreto;
+IV. Clausura parcial o total, temporal o definitiva;
+V. Revocación de la licencia, permiso, concesión o autorización, según el caso;
+VI. Cancelación de la licencia, permiso, concesión, registro o autorización, según el caso;
+VII. Suspensión de la licencia, permiso, concesión o autorización, según el caso; y
+VIII. Arresto administrativo hasta por treinta y seis horas.

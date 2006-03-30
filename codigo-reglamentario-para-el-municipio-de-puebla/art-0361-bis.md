@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE MARZO DE 2006)
+Artículo 361 Bis.- Cuando por el uso de CINEMÓMETROS se determine una infracción a las disposiciones del presente Capítulo y no se pueda identificar al conductor del vehículo infractor y sea distinto al propietario del mismo, este último será responsable solidario del conductor infractor, por motivo del tránsito de vehículos en atención a la responsabilidad objetiva en que incurre.
