@@ -1,0 +1,3 @@
+P.O. 29 DE MARZO DE 2006.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO.- Por la conmemoración en el año dos mil seis del bicentenario del natalicio de Don Benito Juárez García, Benemérito de las Américas, en el año en curso será día de descanso obligatorio para los Trabajadores al Servicio del Estado, inhábil para el despacho de los Tribunales del Poder Judicial del Estado y no se contará en los plazos fijados en días por la legislación fiscal del Estado, el día martes 21 de marzo, en lugar del tercer lunes de marzo, por lo que la reforma relativa a este día, tendrá vigencia a partir del año dos mil siete.
