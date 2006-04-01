@@ -1,7 +1,7 @@
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1995) (F. DE E., P.O. 6 DE FEBRERO DE 1996)
 ARTICULO 41 B.- Las Autoridades Fiscales, a petición de los contribuyentes, podrán autorizar el pago a plazos, ya sea diferido o en parcialidades, de las contribuciones omitidas y de sus accesorios sin que dicho plazo exceda de doce meses. Las contribuciones omitidas y sus accesorios se actualizarán a partir de los meses en que se debieron haber pagado hasta aquél en que se conceda la autorización. Cada parcialidad se actualizará desde esta última fecha hasta el mes en que cada parcialidad se pague. Durante el plazo concedido se causarán recargos sobre el saldo insoluto, incluyendo accesorios, actualizado, a la tasa que mediante ley fije anualmente el Congreso de la Unión. Dicho saldo se actualizará desde la fecha de autorización del pago en parcialidades hasta el mes por el que se calculan los recargos.
-(REFORMADO, P.O. 17 DE DICIEMBRE DE 2001)
-Las Autoridades Fiscales al autorizar el pago a plazos, exigirán que se garantice el interés fiscal mediante fianza o cualquiera de las formas de garantía establecidas en este Código.
+(REFORMADO, P.O. 31 DE MARZO DE 2006)
+Las autoridades fiscales al autorizar el pago a plazos, exigirán que se garantice el interés fiscal mediante cualquiera de las formas de garantía establecidas en este Código.
 Cesará la autorización para pagar a plazos en forma diferida o en parcialidades cuando:
 I.- Desaparezca o resulte insuficiente la garantía del interés fiscal, sin que el contribuyente dé nueva garantía o amplíe la que resulte insuficiente.
 II.- El contribuyente sea declarado en quiebra, o solicite su liquidación judicial.
