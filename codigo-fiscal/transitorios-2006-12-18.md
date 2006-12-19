@@ -1,0 +1,6 @@
+P.O. 18 DE DICIEMBRE DE 2006.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO SEGUNDO. Se derogan todas las disposiciones que se opongan a este Decreto.
+ARTÍCULO TERCERO. Lo dispuesto en los artículos 24 fracción X, 26 fracciones I y III, 41 fracción IV inciso d) y 76 fracción I del presente Decreto, entrarán en vigor una vez que la Secretaría de Finanzas y Administración cuente con la infraestructura suficiente para operar los medios electrónicos a los que se hace alusión en los artículos citados y defina mediante Reglas de Carácter General los aspectos que se señalan en dichas disposiciones.
+ARTÍCULO CUARTO. Las disposiciones en las que establezcan obligaciones a los contribuyentes, entrarán en vigor en tanto se instauren los procedimientos, formatos y herramientas que la Secretaría de Finanzas y Administración dé a conocer mediante Reglas de Carácter General.
+ARTÍCULO QUINTO. Los recursos administrativos de revocación que se encuentren en trámite ante la autoridad fiscal correspondiente, al momento de entrar en vigor el presente Decreto, se substanciarán hasta su total resolución conforme a las disposiciones legales vigentes en el momento de su interposición.
