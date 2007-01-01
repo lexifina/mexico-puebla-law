@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2005)
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2005) (REUBICADO, P.O. 29 DE DICIEMBRE DE 2006)
 Artículo 274 Quáter.- Es base gravable de este derecho el número de licencias o refrendos que correspondan a cada uno de los siguientes giros:
 I. Miscelánea o ultramarinos con venta de cerveza y bebidas refrescantes con una graduación alcohólica de hasta 6° Gay Lusak en envase cerrado;
 II. Miscelánea o ultramarinos con venta de bebidas alcohólicas en envase cerrado;
