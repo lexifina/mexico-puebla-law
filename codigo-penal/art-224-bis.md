@@ -1,3 +1,1 @@
-(REFORMADO, P.O. 30 DE ABRIL DE 2004)
-Artículo 224 Bis.- Al que procure, induzca, facilite o utilice a uno o más menores de dieciséis años o personas incapaces, con o sin su consentimiento, para realizar actos de exhibicionismo corporal lascivos o sexuales, con la finalidad de fotografiarlos, videograbarlos, filmarlos o exhibirlos, usando medios impresos o electrónicos, se le impondrá prisión de ocho a catorce años y multa de cien a mil doscientos días de salario.
-Se entiende por pornografía infantil, la representación sexualmente explícita de imágenes de personas menores de dieciséis años, y se equiparan a la misma los casos en que se incluya a una o varias personas incapaces de comprender las consecuencias del hecho en que intervienen.
+Artículo 224 Bis.- (DEROGADO, P.O. 23 DE MARZO DE 2007)

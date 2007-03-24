@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE MARZO DE 2007)
+Artículo 154 Bis.- Cuando el testigo o testigos que presentó el denunciante y este mismo, no puedan ser localizados para comparecer a alguna diligencia, se hará constar esta circunstancia en autos; requiriéndose al Ministerio Público la presencia del testigo, testigos o denunciante, independientemente de hacerlo a través de los medios de apremio establecidos en el artículo 31 Bis del presente ordenamiento.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE MARZO DE 2007)
+Artículo 85 Bis.- Cuando con el delito de imprudencia se cause homicidio o lesiones de las enumeradas en los artículos 307 y 308 fracciones IV y V de este Ordenamiento Legal, se sancionará de dos a nueve años de prisión, si el acusado, al cometer el delito, se hallaba en estado de embriaguez, superior al primer grado o bajo el efecto de enervantes, estupefacientes o psicotrópicos o cualquier sustancia que produzca un efecto similar.

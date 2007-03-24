@@ -1,2 +1,1 @@
-(REFORMADO, P.O. 30 DE ABRIL DE 2004)
-Artículo 224 Ter.- Además del decomiso de los objetos, instrumentos y productos del delito, al que por cualquiera que fuera el medio, fije, grabe, imprima, promueva, arriende, transmita, venda, publique, distribuya, exhiba y difunda; transporte o posea con algunos de estos fines, material pornográfico infantil, se le impondrá prisión de ocho a catorce años y multa de cien a mil doscientos días de salario.
+Artículo 224 Ter.- (DEROGADO, P.O. 23 DE MARZO DE 2007)

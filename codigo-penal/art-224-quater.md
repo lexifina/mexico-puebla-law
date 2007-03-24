@@ -1,2 +1,1 @@
-(REFORMADO, P.O. 30 DE ABRIL DE 2004)
-Artículo 224 Quáter.- Se duplicará la sanción a la persona que cometa, participe o consienta cualquiera de las conductas descritas con anterioridad, si fuere ascendiente, pariente por consanguinidad o afinidad, en línea recta o colateral sin limitación de grado, ministro de cualquier culto, profesor o cualquier otra persona que ejerza sobre el menor o incapaz influencia moral, física, psicológica o de cualquier índole, así como quien tenga cualquier representación de carácter judicial sobre la víctima.
+Artículo 224 Quáter.- (DEROGADO, P.O. 23 DE MARZO DE 2007)
