@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 12 DE FEBRERO DE 2007)
+Artículo 107 Novies.- Las violaciones al presente apartado serán sancionadas sin perjuicio de las acciones legales que procedan, por el Honorable Ayuntamiento de Puebla, mismas que son:
+I.- A quien altere, distorsione, menoscabe o modifique los documentos públicos que se emitan o reciban a través de los medios electrónicos de comunicación, se le impondrá una multa de 100 a 200 días de salario mínimo vigente en el Estado de Puebla y en caso de ser usuario, la revocación de su cuenta de correo electrónico.
+II.- A quien haga uso indebido de los medios electrónicos a cargo de los servidores públicos del Gobierno Municipal, se le impondrá una multa de 50 a 100 días de salario mínimo vigente en el Estado de Puebla y en caso de ser usuario, la revocación de su cuenta de correo electrónico.
+III.- A quien elimine, borre o impida que cualquier archivo sea enviado y recibido en tiempo y forma legal se le impondrá una multa de 100 a 200 días de salario mínimo vigente en el Estado de Puebla y en caso de ser usuario la revocación de su cuenta de correo electrónico.

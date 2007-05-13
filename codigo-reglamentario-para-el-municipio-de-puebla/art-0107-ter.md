@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE FEBRERO DE 2007)
+Artículo 107 Ter.- En cumplimiento del artículo anterior el Presidente Municipal, Regidores, Secretario del H. Ayuntamiento, Sindico y Titulares que conformen la Administración Centralizada y Descentralizada Municipal, contarán con una cuenta de correo electrónico asignada por la Dirección de Tecnologías de la Información, que contara con clave de seguridad, misma que será responsabilidad de cada usuario.
