@@ -9,5 +9,3 @@ Welter5.50012 Lbs.2 Onzas
 Medio6.00013 Lbs.4 Onzas
 Semipesado7.00015 Lbs.7 Onzas
 Gran PesoSin Límite alguno.
-(ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
-artículo 2190.- Si un boxeador se excede del peso de la división en que se haya contratado incluyendo los quinientos gramos de tolerancia a que se refiere el Artículo 2189 Ter del presente Capítulo y la Comisión, autorizará la pelea por no haber en el peso una diferencia mayor que la correspondiente a la división de que se trata, estará obligado a pagar a su adversario una indemnización equivalente al 25% de los honorarios que vaya a percibir por la pelea.

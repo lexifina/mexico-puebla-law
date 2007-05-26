@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE MAYO DE 2007)
+Artículo 1651 bis.- Si el servicio de rastro lo presta el concesionario dará aviso a la Tesorería Municipal del manejo de las materias residuales del proceso de matanza; si son incineradas, industrializadas y comercializadas o algunas de ellas entregadas a los introductores o usuarios a petición de éstos, siempre y cuando justifiquen el destino de los mismos, cumpliendo con la normatividad aplicable a la materia.
