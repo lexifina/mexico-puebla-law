@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 1 DE JUNIO DE 2005)
-Artículo 616 bis.- En los comercios señalados en el presente artículo queda estrictamente prohibida la venta de bebidas alcohólicas e ingreso de clientes a partir de las 2:00Hrs.
+Artículo 616 Bis.- En los comercios señalados en el presente artículo queda estrictamente prohibida la venta de bebidas alcohólicas e ingreso de clientes a partir de las 2:00Hrs.
 (REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
 I. BILLARES CON VENTA DE CERVEZA EN BOTELLA ABIERTA;
 (REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
