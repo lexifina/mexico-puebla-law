@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2007)
+Artículo 1279 Bis.- El Ayuntamiento, a través del Presidente Municipal, para fines de colocación de cualquier tipo de anuncios publicitarios, estará facultado para celebrar convenios o contratos, por concepto de concesión, renta o administración de los muebles que forman parte o constituyan el mobiliario urbano, pudiendo recibir como contraprestaciones beneficios en especie, las cuales, en ningún caso deberán ser menores al monto por la autorización o permiso o cuando éstas sean en detrimento del patrimonio municipal.
