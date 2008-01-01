@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2007)
+ARTÍCULO 130-F.- En caso de que la Contratante en la solicitud de autorización del proyecto hubiere manifestado la necesidad de otorgar alguna garantía al Proveedor, la Secretaría o el Ayuntamiento, según sea el caso, evaluarán la procedencia de su otorgamiento, la naturaleza de la misma y en su caso, rechazará la solicitud que a su juicio considere innecesaria o inconveniente para los intereses del Estado o del Municipio.
+En caso de que la Secretaría o el Ayuntamiento, determinen la procedencia del otorgamiento de alguna garantía, definirá la naturaleza de ésta y sus características.

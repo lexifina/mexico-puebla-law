@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2007)
+ARTÍCULO 130-G.- De autorizarse el proyecto para prestación de servicios a largo plazo por la Secretaría o los Ayuntamientos, éstos lo enviarán por conducto del Ejecutivo Estatal al H. Congreso del Estado para que autorice las previsiones presupuestales que habrán de considerarse en sus respectivos Presupuestos de Egresos de cada uno de los Ejercicios Fiscales que comprenda la vigencia del contrato correspondiente.

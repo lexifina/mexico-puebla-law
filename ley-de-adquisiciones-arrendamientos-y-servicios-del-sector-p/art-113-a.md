@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2007)
+ARTÍCULO 113-A.- Para la modificación de contratos de proyectos para prestación de servicios a largo plazo, la Contratante deberá contar de manera previa con la autorización de la Secretaría o del Ayuntamiento, según corresponda.
+Una vez autorizadas las modificaciones al contrato respectivo y para el caso de que éstas impliquen un incremento en el presupuesto originalmente autorizado, la Secretaría o el Ayuntamiento según corresponda, realizarán las adecuaciones presupuestarias correspondientes y se informará de éstas al rendir la Cuenta Pública respectiva.
