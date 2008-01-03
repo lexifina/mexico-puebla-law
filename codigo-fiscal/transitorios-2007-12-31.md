@@ -1,0 +1,8 @@
+P.O. 31 DE DICIEMBRE DE 2007.
+PRIMERO.- El presente Decreto deberá publicarse en el Periódico Oficial del Estado y entrará en vigor a partir del primer día del mes de enero de dos mil ocho.
+SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO.- En lo conducente, lo dispuesto en el artículo 34 deberá sujetarse a los procedimientos establecidos en el Acuerdo del Secretario de Finanzas y Administración, por el que emite las Reglas de Carácter General mediante las cuales se autorizan y dan a conocer los procedimientos y lugares para el pago de contribuciones, productos y aprovechamientos y, se habilitan días y horas para el otorgamiento de estos servicios, publicado en el Periódico Oficial del Estado de fecha doce de octubre de dos mil siete.
+CUARTO.- Lo dispuesto en los artículos 24 fracción X, 41 fracción IV inciso a) y 81 fracción I entrará en vigor una vez que la Secretaría de Finanzas y Administración cuente con la infraestructura programática suficiente para operar los medios electrónicos a los que se hace alusión en los artículos citados.
+(F. DE E., P.O. 27 DE FEBRERO DE 2008)
+QUINTO.- Las facultades de comprobación a que se refiere los incisos b) y c) de la fracción VII del artículo 41 de este Código, que se hayan ejercido anteriormente a la entrada en vigor del presente Decreto, se substanciarán hasta su total conclusión conforme a las disposiciones legales vigentes en el momento en que se hubieren iniciado.
+SEXTO.- Los recursos administrativos de revocación que se encuentren en trámite ante la autoridad fiscal correspondiente, al momento de entrar en vigor el presente Decreto, se substanciarán hasta su total resolución conforme a las disposiciones legales vigentes en el momento de su interposición.
