@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2008)
+Artículo 2341 Bis.- La Copia de la Declaración de la declaración de la UNESCO a la Ciudad de Puebla como Patrimonio Histórico de la Humanidad, será otorgado a personas físicas de reconocida trayectoria, cuyos trabajos o acciones tengan injerencia en la inscripción, conservación, restauración y/o promoción del Centro Histórico de la Ciudad de Puebla, como Patrimonio Histórico de la Humanidad.
