@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 23 DE MAYO DE 2007)
-Artículo 1671 bis.- Son infracciones administrativas:
+Artículo 1671 Bis.- Son infracciones administrativas:
 I.- La falta del sello sanitario y/o documentación comprobatoria de la sanidad y legal procedencia de los productos cárnicos en canales, en piezas o en partes que se comercialicen en el Municipio, ya sean, nacionales o del extranjero; en cuyo caso, se impondrá multa de treinta a mil quinientos días de salario mínimo general, vigente en la ciudad de Puebla; en su caso, decomiso;
 II.- Alterar documentos oficiales: permisos, licencias y actas de visita; en cuyo caso, se impondrá multa de treinta a quinientos días de salario mínimo general, vigente en la ciudad de Puebla;
 III.- No cumplir con las normas de higiene en las instalaciones de establecimientos o centros comerciales, que procesen, industrialicen y expendan el producto cárnico; en cuyo caso, se impondrá multa de cincuenta a mil quinientos días de salario mínimo general, vigente en la ciudad de Puebla; en su caso, se procederá a la clausura;

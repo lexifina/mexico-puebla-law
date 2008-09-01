@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 26 DE FEBRERO DE 2007)
-Artículo 1687 bis. Para la imposición de las sanciones la autoridad competente tomará en cuenta la gravedad de la infracción de acuerdo a:
+Artículo 1687 Bis.- Para la imposición de las sanciones la autoridad competente tomará en cuenta la gravedad de la infracción de acuerdo a:
 1. Los daños que se hubieren producido o pudieren producirse.
 2. El carácter intencional o no de la acción u omisión constitutiva de la infracción.
 3. Las circunstancias personales y situación socioeconómica del infractor.

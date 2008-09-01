@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 26 DE FEBRERO DE 2007)
-Artículo 1677 bis. Son facultades de las autoridades competentes, las siguientes:
+Artículo 1677 Bis.- Son facultades de las autoridades competentes, las siguientes:
 I. Del Ayuntamiento:
 a) Emitir los acuerdos y disposiciones para regular los términos, condiciones y modalidades sobre los cuales se podrá prestar el servicio público de estacionamiento;
 b) Aprobar y modificar las tarifas para el cobro por hora fijo, por pensión y cualquier otra que pudiera cobrar el prestador del servicio como contraprestación;
@@ -16,7 +16,8 @@ e) Emitir opinión respecto a las tarifas que sean fijadas por el Ayuntamiento p
 f) Recibir las quejas que formulen los usuarios del servicio público de estacionamiento, contra actos relativos a la prestación del servicio, debiendo sustanciar el procedimiento de investigación correspondiente, para estar en posibilidad de aplicar, en su caso, las sanciones a que haya lugar, previstas en el presente Capítulo;
 g) Vigilar el adecuado funcionamiento del servicio público de estacionamiento en el Municipio, conforme a las disposiciones establecidas en el presente Capítulo: y
 h) Las facultades que le confiera el presente Capítulo y disposiciones normativas aplicables.
-IV. De la SAUOPE:
+(REFORMADO PRIMER PARRAFO, P.O. 29 DE AGOSTO DE 2008)
+IV. De la Secretaría de Gestión Urbana y Obra Pública para el Desarrollo Sustentable, en adelante, Secretaría de Gestión:
 a) Recibir las solicitudes de los interesados en obtener la licencia, para su trámite respectivo;
 b) Analizar las solicitudes y documentos que presenten los interesados para obtener la licencia, debiendo emitir el dictamen relativo a la aprobación o negación correspondiente dentro de los quince días hábiles siguientes, en su caso, solicitar sean subsanadas las deficiencias que se encuentren en un término de tres días hábiles;
 c) Emitir licencia de uso de suelo y licencia de construcción, necesarios para la aprobación de las licencias;

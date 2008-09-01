@@ -1,10 +1,11 @@
 (ADICIONADO, P.O. 26 DE FEBRERO DE 2007)
-Artículo 1679 ter.- Son obligaciones de los prestadores del servicio:
+Artículo 1679 Ter.- Son obligaciones de los prestadores del servicio:
 I. Entregar en tiempo y forma la documentación solicitada por las autoridades municipales para el otorgamiento de la licencia;
 II. Cumplir con lo dispuesto por la legislación laboral y la normatividad de protección al consumidor:
 III. Acatar estrictamente los términos en que se le otorgue la licencia;
 IV. Colaborar con las autoridades municipales, estatales y federales en el ejercicio de sus facultades con respecto a la inspección y vigilancia de la prestación del servicio, cumplimiento de la legislación aplicable y ejercicio de sus funciones cuando así lo requieran;
-V. Comunicar a la SAUOPE y Tesorería la existencia de servicios adicionales al de estacionamiento;
+(REFORMADA, P.O. 29 DE AGOSTO DE 2008)
+V. Comunicar a la Secretaría de Gestión y Tesorería la existencia de servicios adicionales al de estacionamiento;
 VI. Conservar las instalaciones del estacionamiento en condiciones de higiene y seguridad, incluyendo el servicio de baños;
 VII. Reservar cajones de estacionamiento para personas con capacidad diferente, los cuales deberán estar lo más cercanos posible a las puertas de ingreso del estacionamiento, asimismo, vigilar y controlar que sean exclusivamente utilizados por estas personas;
 VIII. Contar con póliza de seguro vigente contra robo total, daños y responsabilidad civil que apruebe el Ayuntamiento, además de que serán responsables de los objetos que se dejen en el interior del vehículo, siempre y cuando el usuario haya dejado constancia mediante inventario de esa situación;
