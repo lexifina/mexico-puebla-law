@@ -1,0 +1,7 @@
+TRANSITORIOS
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Se abroga la Ley de Expropiación para el Estado de Puebla, de fecha treinta y uno de octubre de mil novecientos setenta y cinco y se derogan todas las disposiciones que se opongan al presente Decreto.
+Artículo Tercero.- Los Expedientes de Expropiación que se encuentren en trámite, se ajustarán a esta Ley para la continuación del procedimiento respectivo.
+Artículo Cuarto.- Se abroga el Reglamento del artículo 18 de la Ley de Expropiación para el Estado de Puebla, de fecha nueve de noviembre de dos mil uno.
+EL GOBERNADOR, hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Heroica Ciudad de Puebla de Zaragoza, a los trece días del mes de noviembre de dos mil ocho.- Diputada Presidenta- MALINALLI AURORA GARCÍA RUIZ.- Rúbrica.- Diputado Vicepresidente.- HÉCTOR MAURICIO HIDALGO GONZÁLEZ.- Rúbrica.- Diputado Secretario.- RAÚL ERASMO ÁLVAREZ MARÍN.- Rúbrica.-
+Diputado Secretario.- GABRIEL GUSTAVO ESPINOSA VÁZQUEZ.- Rúbrica. Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Heroica Puebla de Zaragoza, a los trece días del mes de noviembre de dos mil ocho.- El Gobernador Constitucional del Estado.- LICENCIADO MARIO P. MARÍN TORRES.- Rúbrica.- El Secretario de Gobernación.- LICENCIADO MARIO ALBERTO MONTERO SERRANO.- Rúbrica.
