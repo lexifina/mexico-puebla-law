@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
+Artículo 236 Quinquies.- En el caso de menores de edad, serán sus padres, tutores, representantes legales o persona que legalmente tenga bajo su custodia, cuidado o responsabilidad a un menor de edad, los que podrán realizar servicio a favor de la comunidad, ya que son solidariamente responsables por las infracciones, acciones u hechos que realicen o protagonicen los menores de edad a su cargo.
+La petición deberá formularse por el menor, por escrito y con la autorización de sus padres, tutores o representantes legales, debiendo ser firmada por ambos. Anexando a dicha solicitud comprobante domiciliario fidedigno.

@@ -1,0 +1,4 @@
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 31 DE DICIEMBRE DE 2008)
+DE LA SEGURIDAD
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
+Artículo 488 Bis.- Para los efectos del presente Capítulo se entiende por medida de seguridad toda acción tendiente a salvaguardar el orden público y la integridad de los espectadores y participantes del mismo.

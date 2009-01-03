@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 29 DE AGOSTO DE 2008)
-Artículo 1271 Bis.- El Ayuntamiento, a través de la Dirección de Gestión, determinará el lugar específico para la colocación de los anuncios electrónicos de propaganda, previo dictamen que de éste haga la Unidad Operativa Municipal de Protección Civil.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2008)
+Artículo 1271 Bis.- El Ayuntamiento, a través de la Agencia, determinará el lugar específico para la colocación de los anuncios electrónicos de propaganda, previo Dictamen de Protección Civil, y sólo dentro de las Zonas Publicitarias.

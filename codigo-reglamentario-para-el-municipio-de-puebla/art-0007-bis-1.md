@@ -10,8 +10,8 @@ III. Impulsar proyectos productivos, así como de desarrollo urbano sustentable,
 IV. Desarrollo de la actividad turística;
 V. La protección, restauración y conservación de los ecosistemas, recursos ambientales y bienes y servicios naturales, así como su aprovechamiento sustentable y demás actividades en la materia;
 VI. La observancia de los derechos humanos y garantías sociales;
-VII.- Capacitación, empleo y productividad, seguridad e higiene;
-VIII.- Desarrollo institucional, innovación gubernamental y desarrollo administrativo;
+VII. Capacitación, empleo y productividad, seguridad e higiene;
+VIII. Desarrollo institucional, innovación gubernamental y desarrollo administrativo;
 IX. Transparencia, mejora regulatoria y procedimientos administrativos;
 X. Justicia, protección civil, seguridad pública, seguridad vial y tránsito municipal;
 XI. Salud, asistencia social, educación, investigación, deporte, arte y cultura;

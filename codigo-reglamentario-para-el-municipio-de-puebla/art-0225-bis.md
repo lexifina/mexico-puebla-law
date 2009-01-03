@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
+Artículo 225 Bis.- El Juez Calificador deberá tomar las medidas necesarias para que los asuntos de su competencia se resuelvan durante el ejercicio de sus funciones, debiendo bajo su estricta responsabilidad, entregar las actuaciones practicadas hasta ese momento, dejando a disposición del Juez que inicia turno a los infractores que se encuentren en el Área de Seguridad.

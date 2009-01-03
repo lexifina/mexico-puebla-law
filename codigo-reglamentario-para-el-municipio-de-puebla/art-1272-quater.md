@@ -10,9 +10,11 @@ III. No se permitirá la instalación de este tipo de anuncios en zonas históri
 IV. No se permitirán anuncios de este tipo en lugares que afecten inmuebles destinados parcial o totalmente a uso habitacional;
 (ADICIONADA, P.O. 19 DE DICIEMBRE DE 2007)
 V. Solo se permitirán este tipo de anuncios en lugares en donde no se interfiera la visibilidad o funcionamiento de las señalizaciones oficiales de cualquier tipo;
-(REFORMADA, P.O. 29 DE AGOSTO DE 2008)
-VI. Obtener la autorización correspondiente por parte de la Dirección de Gestión;
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2008)
+VI. Obtener la Licencia correspondiente de la Agencia;
 (ADICIONADA, P.O. 19 DE DICIEMBRE DE 2007)
-VII. Queda estrictamente prohibido instalar en el Municipio de Puebla, anuncios cuyas dimensiones excedan de las medidas establecidas en la fracción I de este artículo; y
-(ADICIONADA, P.O. 19 DE DICIEMBRE DE 2007)
-VIII. Las demás que a juicio de la Autoridad correspondiente sean requeridas.
+VII. Queda estrictamente prohibido instalar en el Municipio de Puebla, anuncios cuyas dimensiones excedan de las medidas establecidas en la fracción I de este artículo; y (sic)
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2008)
+VIII. Los anuncios espectaculares deberán situarse a una distancia mínima de 5.00 metros de los cables de alta tensión; y
+(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)
+IX. Las demás que a juicio de la Autoridad correspondiente sean requeridas.

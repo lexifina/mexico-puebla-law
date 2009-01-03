@@ -1,6 +1,8 @@
+(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 2008)
+Artículo 1336 Bis.- En el caso de que el retiro de un anuncio sea efectuado por la Autoridad, el material que resulte quedará bajo resguardo de la misma en el lugar que para el efecto se destine, hasta por un plazo de tres meses contados a partir de la fecha en que se realice el retiro, a cuyo vencimiento se estará a lo dispuesto en el Código Fiscal y Presupuestario para el Municipio de Puebla.
 (ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
-Artículo 1336 Bis.- En el caso de que el retiro de un anuncio sea efectuado por la autoridad, el material que resulte quedará bajo resguardo de la misma en el lugar que para el efecto se destine, hasta por un plazo de 2 meses contados a partir de la fecha en que se realice el retiro, a cuyo vencimiento se estará a lo dispuesto en el Código Fiscal y Presupuestario del Municipio de Puebla.
 El material que resulte del retiro, podrá ser devuelto a quien lo solicite, debiendo acreditar:
 a) Ser su Legítimo propietario;
 b) Efectuar el pago de la(s) multa(s) impuesta(s), y los gastos erogados por el Ayuntamiento en virtud del retiro de anuncio(s); exhibiendo el recibo correspondiente; y
-c) Realizar el pago por el servicio de almacenaje, en los términos establecidos en el Código Financiero del Municipio de Puebla.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2008)
+c) Realizar el pago por el servicio de almacenaje, en los términos establecidos en el Código Fiscal y Presupuestario para el Municipio de Puebla, vigente al momento de determinar los conceptos de ingresos correspondientes.
