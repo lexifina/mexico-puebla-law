@@ -1,3 +1,4 @@
+(DEROGADO ULTIMO PARRAFO, P.O. 30 DE MARZO DE 2009)
 (ADICIONADO, P.O. 26 DE FEBRERO DE 2007)
 Artículo 1679 Quáter.- Son obligaciones de los usuarios:
 I. El pago al prestador del servicio, de la tarifa correspondiente; y
