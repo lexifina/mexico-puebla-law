@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- La Secretaría adecuará las remuneraciones nominales y adicionales previstas en el Artículo 32 de la presente ley, de conformidad con los incrementos salariales y las deducciones fiscales que procedan y se apliquen a las mismas percepciones durante el ejercicio fiscal del año 2013.

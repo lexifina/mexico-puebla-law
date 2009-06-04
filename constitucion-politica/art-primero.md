@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO.- Esta Ley surtirá sus efectos legales en el Estado de Durango a partir del 1 de Enero de 2013 y regirá hasta el 31 de Diciembre del mismo año. Se derogan las disposiciones que se opongan a la presente Ley.
