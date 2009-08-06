@@ -9,5 +9,6 @@ II. Tendrán los partidos políticos, que informar por cada una de las campañas
 III.- En estos informes se reportarán el origen de los recursos que se hayan destinado para financiar los gastos correspondientes a los rubros señalados en este Código, así como el monto y destino de dichas erogaciones.
 (ADICIONADO, P.O. 12 DE DICIEMBRE DE 2006)
 C.- Informes de precampaña:
-I.- A más tardar dentro de treinta días siguientes a que concluya la selección de candidato, fórmula o planilla, los partidos políticos entregarán un informe detallado de los gastos aplicados por cada una de las precampañas, para Gobernador, Diputados y Ayuntamientos respectivamente, dependiendo la elección de que se trate; y
+(REFORMADA, P.O. 3 DE AGOSTO DE 2009)
+I.- A más tardar dentro de los treinta días siguiente a la fecha en que concluya el proceso interno de selección de candidatos, fórmula o planilla, los partidos políticos y/o coaliciones entregarán un informe, que deberá especificar los montos de los ingresos obtenidos, así como los gastos aplicados en cada una de las precampañas para Gobernador, Diputados por ambos principios y miembros de Ayuntamientos respectivamente, dependiendo la elección de que se trate, en los términos y proporciones que este Código establezca; y
 II.- Los informes definitivos de gastos de precampaña deberán especificar los montos de los ingresos, así como su aplicación en los términos y proporciones que este Código establezca.
