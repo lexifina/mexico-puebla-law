@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 23 DE MAYO DE 2007)
-Artículo 1665 Bis.- El producto cárnico que se transporte sin cumplir con lo dispuesto en el artículo anterior será decomisado por la Autoridad Municipal y sometido a inspección sanitaria; de ser apto para consumo humano se destinará a un establecimiento de Beneficencia Pública.
+(REFORMADO, P.O. 14 DE DICIEMBRE DE 2009)
+Artículo 1665 Bis.- El producto cárnico que se transporte sin cumplir con lo dispuesto en el artículo anterior será decomisado por la autoridad municipal y sometido a inspección sanitaria; adoptando las medidas señaladas en el artículo 1637 Bis del presente Código.
+Para el caso de que el transporte provenga de un Rastro Tipo Inspección Federal y/o en él se trasladen productos cárnicos y/o subproductos amparados con la certificación "México Calidad Suprema", los inspectores municipales sólo verificarán que la documentación correspondiente se encuentre en orden.
