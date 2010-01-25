@@ -1,0 +1,7 @@
+P.O. 22 DE ENERO DE 2010.
+PRIMERO.- Las presentes reformas, derogaciones y adiciones surtirán sus efectos al día siguiente de su publicación en el Periódico Oficial del Estado de Puebla.
+SEGUNDO.- Se derogan las disposiciones que se opongan a lo establecido en el presente Dictamen.
+TERCERO.- Todas las solicitudes presentadas para obtener el registro de Directores Responsables de Obra y Corresponsables hasta antes de la publicación del presente Dictamen, tendrán que resolverse en términos de la legislación anterior.
+CUARTO.- Los registros de Directores Responsables de Obra y Corresponsables, seguirán vigentes hasta el plazo estipulado, debiendo obtener el refrendo respectivo en términos del presente Dictamen.
+QUINTO.- Dentro de los quince días hábiles siguientes, contados. a partir de su publicación en el Periódico Oficial del Estado, la Comisión de Asesoría y Admisión de Directores Responsables de Obra y Corresponsables, sesionará a fin de incorporar a los nuevos miembros de la Comisión. Los Vocales señalados en el artículo 670 fracción VII del presente Reglamento, serán nombrados a propuesta de los Colegios miembros de dicha Comisión.
+SEXTO.- La Dirección de Gestión solicitará a la Comisión de Asesoría y Admisión de Directores Responsables de Obra y Corresponsables, elabore su Manual de Procedimientos dentro de los treinta días hábiles siguientes al nombramiento de los Vocales a que se refiere el artículo 670, para que sea sometido a consideración de la Contraloría Municipal para su correspondiente aprobación.
