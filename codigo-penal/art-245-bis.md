@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 6 DE NOVIEMBRE DE 2000)
-Artículo 245 BIS.- Se impondrá prisión de tres a nueve años y multa de ciento cincuenta a cuatrocientos días de salario:
+Artículo 245 Bis.- Se impondrá prisión de tres a nueve años y multa de ciento cincuenta a cuatrocientos días de salario:
 I.- Al que produzca, imprima, enajene aun gratuitamente, distribuya o altere tarjetas, títulos, documentos o instrumentos utilizados para el pago de bienes y servicios o para disposición de efectivo, sin consentimiento de quien esté facultado para ello;
 II.- Al que adquiera, utilice o posea, tarjetas, títulos, documentos o instrumentos para el pago de bienes y servicios o para disposición de efectivo, a sabiendas de que son alterados o falsificados;
 III.- Al que adquiera, utilice, posea o detente indebidamente, tarjetas, títulos o documentos auténticos para el pago de bienes y servicios o para disposición de efectivo, sin consentimiento de quien esté facultado para ello;

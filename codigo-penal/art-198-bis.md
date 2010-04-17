@@ -1,2 +1,7 @@
-(ADICIONADO, P.O. 20 DE JULIO DE 2001)
-ARTÍCULO 198 bis.- Se impondrá prisión de uno a tres años y multa de cien a trescientos cincuenta días de salario, a los prestadores de servicios ambientales autorizados, centros de verificación, laboratorios y/o cualquier persona física o moral que de manera dolosa o culposa, proporcione documentación o información falsa o alterada, u omitan datos, con el objeto de que las autoridades ambientales y/o fiscales competentes, otorguen o avalen licencias, autorizaciones, registros, constancias o permisos de cualquier tipo o cancelen sanciones o créditos fiscales.
+(REFORMADO, P.O. 16 DE ABRIL DE 2010)
+Artículo 198 Bis.- Se impondrá de seis meses a tres años de prisión y multa de cincuenta a doscientos días de salario, al titular de una concesión de un centro de verificación vehicular, responsable y/o al empleado de éste, que de manera dolosa o culposa, realice, autorice, permita u ordene cualquiera de las siguientes conductas:
+I.- Altere o haga uso indebido de documentos oficiales;
+II.- Utilice simuladores de revoluciones para el proceso de verificación;
+III.- Sustituya vehículos en el proceso de verificación;
+IV.- Condicione la aprobación o la entrega de documentación comprobatoria de la verificación vehicular a la entrega de dinero adicional al previsto en la tarifa oficial; y
+V.- Cobre una tarifa superior autorizada por la autoridad competente.

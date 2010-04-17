@@ -1,3 +1,3 @@
 (REFORMADO, P.O. 23 DE MARZO DE 2007)
-Artículo 413 bis.- Al que sin consentimiento realizare o pintare signos, leyendas, dibujos o cualquiera otra manifestación gráfica, en bienes inmuebles de propiedad privada se le impondrá prisión de treinta días a tres años y multa de diez a doscientos cincuenta días de salario.
+Artículo 413 Bis.- Al que sin consentimiento realizare o pintare signos, leyendas, dibujos o cualquiera otra manifestación gráfica, en bienes inmuebles de propiedad privada se le impondrá prisión de treinta días a tres años y multa de diez a doscientos cincuenta días de salario.
 Si las conductas a que se refiere el párrafo anterior se realizaren en una escuela, biblioteca, edificio público, museo, monumento u obra de arte, o que se considere parte del patrimonio histórico, artístico o cultural del Estado, se impondrán al responsable de sesenta días a seis años de prisión y multa de veinte a quinientos días de salario.

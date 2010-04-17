@@ -1,5 +1,2 @@
-(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 20 DE JULIO DE 2001)
-SECCION SEGUNDA.- DELITOS CONTRA LA INFRAESTRUCTURA HIDRAULICA
-(ADICIONADO, P.O. 20 DE JULIO DE 2001)
-ARTÍCULO 198 quáter.- Se aplicará prisión de uno a cuatro años y multa de tres a veinte mil días de salario, a quien de manera dolosa o culposa realice, autorice, consienta, permita u ordene, la descarga, el depósito o infiltración de contaminantes, sustancias corrosivas, reactivas, explosivas, tóxicas, inflamables o biológico-infecciosas, al sistema de alcantarillado o drenaje de las poblaciones, en contravención a las disposiciones legales, reglamentarias y Normas Oficiales Mexicanas, así como a las normas técnicas ecológicas aplicables, que causen o puedan causar afectación a la salud de la población o al ecosistema.
-Igual sanción se aplicará si la descarga, el depósito o infiltración a que se refiere el párrafo anterior se realiza en ríos, cuencas, vasos o demás depósitos de corrientes de agua y ocasione o pueda ocasionar daños a la salud pública o al ecosistema.
+(REFORMADO Y REUBICADO, P.O. 16 DE ABRIL DE 2010)
+Artículo 198 Quáter.- Se impondrá pena de uno a tres años de prisión y multa de trescientos a dos mil días de salario, al prestador de servicios ambientales, profesionistas o técnicos en materia forestal que falte a la verdad, alterando documentos o emita dictámenes, estudios o resoluciones, que ocasionen daño a la salud pública, al medio ambiente o a los recursos naturales.

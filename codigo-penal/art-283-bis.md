@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 13 DE DICIEMBRE DE 2004)
-Artículo 283 BIS.- También comete el delito de sustracción de menores el ascendiente, pariente colateral o afín hasta el cuarto grado que retenga a un menor en los siguientes casos:
+Artículo 283 Bis.- También comete el delito de sustracción de menores el ascendiente, pariente colateral o afín hasta el cuarto grado que retenga a un menor en los siguientes casos:
 I.- Cuando haya perdido la patria potestad o ejerciendo ésta se encuentre suspendido o limitado;
 II.- Que no tenga la guarda y custodia provisional o definitiva o la tutela sobre él;
 III.- Que no permita las convivencias decretadas por resolución judicial o estipuladas en convenio, y
