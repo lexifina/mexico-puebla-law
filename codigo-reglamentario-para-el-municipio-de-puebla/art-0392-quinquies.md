@@ -5,4 +5,3 @@ II.- Fungir como órgano de consulta en la coordinación de las acciones del Mun
 III.- Fomentar la participación activa y responsable de todos los sectores y los habitantes del Municipio, en la formulación y ejecución del Programa Municipal de Protección Civil;
 IV.- Constituirse en Sesión Permanente en caso de producirse un desastre, a fin de verificar la realización de las acciones que procedan; y
 V.- Las demás funciones que le encomiende el Presidente Municipal.
-INTEGRACIÓN DE LA UNIDAD OPERATIVA MUNICIPAL DE PROTECCIÓN CIVIL
