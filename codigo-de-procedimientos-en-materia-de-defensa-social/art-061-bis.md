@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 18 DE AGOSTO DE 2010)
+Artículo 61 Bis.- Cuando la denuncia o querella se realice vía telefónica o por medios electrónicos, el Ministerio Público, hará saber al denunciante o querellante, previo a su declaración, que será objeto de fijación en archivos de voz y datos contenidos en los medios aportados por la ciencia o la técnica, la trascendencia jurídica del acto que realiza y de las penas en que incurre quien se produce falsamente ante las autoridades.
