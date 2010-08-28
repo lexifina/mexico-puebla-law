@@ -7,4 +7,4 @@ IV.- Al que altere, copie o falsifique los medios de identificación electrónic
 V.- Al que acceda indebidamente a los equipos y sistemas de cómputo o electromagnéticos de las Instituciones emisoras de tarjetas, títulos, documentos o instrumentos, para el pago de bienes y servicios o para disposición de efectivo.
 Las mismas penas se impondrán, a quien utilice indebidamente información confidencial o reservada de la Institución o persona que legalmente esté facultada para emitir tarjetas, títulos, documentos o instrumentos para el pago de bienes y servicios o para disposición de efectivo.
 Si el sujeto activo es empleado o dependiente del ofendido, las penas aumentarán en una mitad.
-En caso de que se actualicen otros delitos con motivo de las conductas a que se refiere este artículo, se aplicarán las reglas del concurso.
+En el caso de que se actualicen otros delitos con motivo de las conductas a que se refiere este artículo, se aplicarán las reglas del concurso.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE AGOSTO DE 2010)
+Artículo 56 Ter.- Los objetos, bienes o valores que causen estado de abandono a favor del Estado, se enajenarán en subasta pública por conducto del Titular de la autoridad investigadora, observando los procedimientos previstos en las disposiciones y normatividad aplicables, y el producto de la venta se aplicará al mejoramiento de la procuración de justicia, previas las deducciones de los gastos ocasionados.
+Lo mismo se observará tratándose de objetos, bienes o valores decomisados por la autoridad judicial, con la circunstancia de que el producto de la venta se destinará al mejoramiento de la administración de justicia.
