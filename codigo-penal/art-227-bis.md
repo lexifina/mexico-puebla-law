@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 23 DE MARZO DE 2007)
-Artículo 227 Bis.- Comete el delito de trata de personas quien promueva, facilite, consiga, traslade, entregue o reciba a una persona para someterla a cualquier forma de explotación, ya sea sexual o de servicios impuestos, o para que le sean extirpados cualquiera de sus órganos, tejidos o sus componentes dentro o fuera del territorio del Estado. Al responsable de este delito se le impondrán de cuatro a nueve años de prisión y multa de cuatrocientos a novecientos días de salario.
+(DEROGADO SEGUNDO PARRAFO, P.O. 3 DE DICIEMBRE DE 2010)
+Artículo 227 Bis.- (DEROGADO, P.O. 3 DE DICIEMBRE DE 2010)

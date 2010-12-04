@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 23 DE MARZO DE 2007)
-Artículo 229 Quáter.- Si los delitos a que se refieren las Secciones anteriores de este Capítulo son cometidos por quienes desempeñan una función pública, la sanción que les corresponda podrá agravarse de tres días a dos años de prisión y serán sancionados además con la destitución del empleo, cargo o comisión pública y la inhabilitación para desempeñar o ejercer otro hasta por doce años.
+(REFORMADO Y REUBICADO, P.O. 3 DE DICIEMBRE DE 2010)
+Artículo 229 Quáter.- Si el sujeto activo de los delitos a que se refieren las secciones anteriores de este Capítulo, se vale de la función pública que tuviere o se ostente como tal sin tenerla, la sanción que les corresponda deberá agravarse de dos a cuatro años de prisión y serán sancionados además con la destitución del empleo, cargo o comisión pública y la inhabilitación para desempeñar o ejercer otro, de diez a veinte años.

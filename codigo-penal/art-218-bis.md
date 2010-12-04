@@ -1,2 +1,1 @@
-(REFORMADO, P.O. 23 DE MARZO DE 2007)
-Artículo 218 Bis.- Cuando un médico legalmente autorizado o institución de salud atiendan a un farmacodependiente menor de dieciocho años de edad que posea algún enervante, estupefaciente, psicotrópico o cualquier otra substancia tóxica y demás substancias o vegetales que determine la Ley General de Salud, cuyo uso esté prohibido o controlado; o que se encuentre bajo el influjo de las substancias antes descritas, deberá hacerlo del conocimiento del Ministerio Público y de las autoridades sanitarias a la brevedad posible, para los efectos legales correspondientes y para brindarles el tratamiento que corresponda.
+Artículo 218 Bis.- (DEROGADO, P.O. 3 DE DICIEMBRE DE 2010)
