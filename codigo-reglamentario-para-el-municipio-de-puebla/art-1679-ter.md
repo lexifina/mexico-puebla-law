@@ -12,8 +12,8 @@ IV. Colaborar con las autoridades municipales, estatales y federales en el ejerc
 V. Comunicar a la Secretaría de Gestión y a la Tesorería la existencia de servicios adicionales al de estacionamiento;
 (ADICIONADA, P.O. 26 DE FEBRERO DE 2007)
 VI. Conservar las instalaciones del estacionamiento en condiciones de higiene y seguridad, incluyendo el servicio de baños;
-(ADICIONADA, P.O. 26 DE FEBRERO DE 2007)
-VII. Reservar cajones de estacionamiento para personas con capacidad diferente, los cuales deberán estar lo más cercanos posible a las puertas de ingreso del estacionamiento, asimismo, vigilar y controlar que sean exclusivamente utilizados por estas personas;
+(REFORMADA, P.O. 2 DE FEBRERO DE 2011)
+VII. Reservar cajones de estacionamiento para personas con discapacidad, los cuales deberán estar lo más cercano posible a las puertas de ingreso del estacionamiento, debidamente señalizados de conformidad con la normatividad vigente, asimismo vigilar y controlar que sean exclusivamente utilizados por estas personas;
 (ADICIONADA, P.O. 26 DE FEBRERO DE 2007)
 VIII. Contar con póliza de seguro vigente contra robo total, daños y responsabilidad civil que apruebe el Ayuntamiento, además de que serán responsables de los objetos que se dejen en el interior del vehículo, siempre y cuando el usuario haya dejado constancia mediante inventario de esa situación;
 (ADICIONADA, P.O. 26 DE FEBRERO DE 2007)
