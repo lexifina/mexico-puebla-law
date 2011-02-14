@@ -5,7 +5,8 @@ II. Otorgar Licencias, Permisos y/o Permisos Publicitarios en materia de anuncio
 III. Emitir los Dictámenes de Factibilidad respecto de las solicitudes para Licencias, Permisos y/o Permisos Publicitarios;
 IV. Emitir Dictámenes de Factibilidad previos al refrendo de Licencias y/o Permisos;
 V. Solicitar y proporcionar a la Tesorería Municipal y demás Autoridades del Ayuntamiento la información necesaria para el cumplimiento de sus funciones;
-VI. Coordinarse con la Tesorería Municipal a través de la Unidad de Normatividad y Regulación Comercial y/o con la Unidad Operativa Municipal de Protección Civil y con cualquier otra relacionada en la materia de anuncios, con el objeto de realizar las visitas de verificación, según corresponda y aplicar las disposiciones jurídicas relativas a anuncios;
+(REFORMADA, P.O. 11 DE FEBRERO DE 2011)
+VI. Coordinarse con la Unidad Operativa Municipal de Protección Civil, en el ámbito de su competencia, cuando se requieran practicar visitas de inspección o verificación en materia de anuncios, según corresponda;
 VII. Solicitar a los titulares, propietarios, poseedores y/o responsables solidarios la documentación que acredite la vigencia y el cumplimiento de las normas jurídicas aplicables de la Licencia, Permisos y/o Permisos Publicitarios correspondientes;
 VIII. La administración del Padrón de Anuncios;
 IX. Establecer los lineamientos para la generación de placas o folios de identificación que serán utilizadas para cada ejercicio fiscal, atendiendo al tipo de anuncios y las especificaciones de diseño, material y contenido que deban observar;

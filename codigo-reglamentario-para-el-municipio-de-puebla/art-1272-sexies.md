@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE FEBRERO DE 2011)
+Artículo 1272 Sexies.- Para efectos de interpretación de los artículos 1263 fracción XII, 1264 fracción V, 1270 Ter fracción VIII, 1271 fracción II, 1272 fracción II, y 1272 Quáter fracción II del presente Capítulo, se entenderá que por cada kilómetro lineal no existirán más de cinco anuncios, sin que se exija mayor distancia que la condicionada por cuestiones de protección civil y el debido uso de los servicios públicos.

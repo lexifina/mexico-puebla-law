@@ -1,2 +1,4 @@
 (ADICIONADO, P.O. 14 DE DICIEMBRE DE 2009)
-Artículo 639 Duovicies.- La autoridad sanitaria municipal, en caso de detectar alguna anomalía que no sea de su competencia, dará aviso a la dependencia correspondiente.
+Artículo 639 Unvicies.- Para la imposición de las sanciones administrativas a que se refiere el artículo 639 Octodecies, la autoridad sanitaria municipal tomará en cuenta la gravedad de la infracción, la reincidencia, los daños y perjuicios causados, los antecedentes, circunstancias personales y situación socioeconómica del infractor.
+Las sanciones de referencia se impondrán, sin perjuicio de la responsabilidad administrativa o penal de la competencia de autoridad diversa.
+Si el incumplimiento a lo dispuesto en el presente Capítulo implica la comisión de un delito, los responsables serán puestos a disposición de la autoridad competente.
