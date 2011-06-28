@@ -27,4 +27,4 @@ DIP. LIC. ARMANDO HERRERA GUZMAN.
 DIP. PROFR. JORGE OTHON CHAVEZ PALMA.
 RUBRICAS.
 Por tanto mando se imprima, publique y circule para sus efectos.- Dado en el Palacio del Poder Ejecutivo en la Heroica Puebla de Zaragoza, a los diecisiete días del mes de abril de mil novecientos ochenta y cinco.- El Gobernador Constitucional del Estado.- LIC. GUILLERMO JIMENEZ MORALES.- Rúbrica.- El Secretario de Gobernación.- LIC. FERNANDO GARCIA ROSAS.- Rúbrica.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
