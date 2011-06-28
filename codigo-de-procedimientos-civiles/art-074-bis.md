@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE JUNIO DE 2011)
+Artículo 74 Bis.- A excepción de las resoluciones que deban notificarse personalmente o por edictos, las notificaciones podrán hacerse por medios electrónicos a los interesados, cuando así lo soliciten al Tribunal y se cumplan las disposiciones reglamentarias que emita el Tribunal Superior de Justicia.
+También podrán realizarse por medios electrónicos las notificaciones, de que trata el párrafo anterior, cuando éstas deban practicarse por medio de exhorto. En este caso, los Tribunales exhortante y exhortado se ajustarán a las disposiciones reglamentarias mencionadas.
