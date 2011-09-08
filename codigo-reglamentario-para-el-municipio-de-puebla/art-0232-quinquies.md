@@ -1,4 +1,4 @@
-(ADICIONADO, P.O.31 DE DICIEMBRE DE 2008)
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
 Artículo 232 Quinquies.- Al Supervisor del Juzgado Calificador corresponderá:
 I. Visitar los Juzgados Calificadores en diferentes horarios de las veinticuatro horas durante todo el año, supervisando el trabajo administrativo;
 II. Levantar actas administrativas en caso de que exista irregularidad en los procedimientos para determinar la responsabilidad del probable infractor;

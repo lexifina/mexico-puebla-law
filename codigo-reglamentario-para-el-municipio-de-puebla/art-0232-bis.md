@@ -1,4 +1,4 @@
-(ADICIONADO, P.O.31 DE DICIEMBRE DE 2008)
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
 Artículo 232 Bis.- Para ser Secretario del Juzgado Calificador, se requiere:
 I. Ser ciudadano mexicano por nacimiento;
 II. Contar con carta de Pasante de la Licenciatura en Derecho;
