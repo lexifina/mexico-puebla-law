@@ -1,5 +1,4 @@
-CODIGO FISCAL DEL ESTADO DE PUEBLA
-N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL P.O. DE 18 DE MARZO DE 2011.
+CÓDIGO FISCAL DEL ESTADO DE PUEBLA
 Código publicado en la Sección Cuarta del Periódico Oficial del Estado de Puebla, el martes 29 de diciembre de 1987.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
 MARIANO PIÑA OLAYA, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a los habitantes del mismo sabed:

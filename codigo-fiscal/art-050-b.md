@@ -1,3 +1,2 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA AL CODIGO.
-(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2010)
-ARTICULO 50-B.- Cuando los contribuyentes se ubiquen en la causal de estimativa establecida en la fracción VIII del artículo 48 de este Código, las autoridades fiscales podrán determinar estimativamente como base gravable la que resulte del monto total de las operaciones que observen durante treinta días naturales, y el promedio diario resultante se multiplicará por el número de días de cada mes que comprende el periodo objeto de revisión.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2011)
+ARTICULO 50-B.- Cuando los contribuyentes se ubiquen en la causal de estimativa establecida en la fracción VIII del artículo 48 de este Código, las Autoridades Fiscales podrán determinar estimativamente como base gravable la que resulte del monto total de las operaciones que observen durante siete días naturales, y el promedio diario resultante se multiplicará por el número de días de cada mes que comprende el período objeto de revisión.
