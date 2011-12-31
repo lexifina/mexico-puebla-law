@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2011)
+Artículo 267 Bis.- Tiempo, forma y lugar de pago.- Los derechos a que se refiere este capítulo se causarán anualmente y se pagarán en forma previa a la prestación del servicio, que podrá darse en una o varias visitas, según lo determine la autoridad correspondiente, debiendo hacerse el pago en las oficinas recaudadoras de la Tesorería Municipal o en los lugares habilitados por ésta, para el cobro de la contribución.
+El pago de este derecho podrá hacerse en cualquier época del año, siempre que la supervisión se realice por lo menos una vez dentro de este periodo de tiempo.
