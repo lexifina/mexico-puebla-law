@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 56 Septies.- La moneda nacional o extranjera que se asegure, embargue o decomise, será remitida a la autoridad competente, para su correspondiente depósito en la cuenta aperturada para este fin en institución bancaria debidamente autorizada.
+En caso de billetes o piezas metálicas que por tener marcas, señas u otras características, sea necesario conservar para fines de la averiguación previa o el proceso penal, la autoridad judicial o el Ministerio Público así lo indicará a la Dirección General Administrativa de la Procuraduría General de Justicia del Estado, para que éste los guarde y conserve en el estado en que los reciba. En estos casos, los depósitos no devengarán intereses.

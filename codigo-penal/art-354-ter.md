@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 354 Ter.- Se impondrá pena de tres meses a dos años de prisión y de doscientos a quinientos días de salario mínimo a aquéllas personas que obligadas a informar acerca de los ingresos de quienes deban cumplir con todas las obligaciones señaladas en el artículo anterior, incumplan con la orden judicial de hacerlo o haciéndolo no lo hagan dentro del término ordenado por el Juez u omitan realizar de inmediato el descuento ordenado.

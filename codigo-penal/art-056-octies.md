@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 56 Octies.- El Ministerio Público o la autoridad judicial que asegure depósitos, títulos de crédito y, en general, cualesquiera bienes o derechos relativos a operaciones, que las instituciones financieras establecidas en el país celebren con sus clientes, dará aviso inmediato a las autoridades de dichas instituciones, quienes tomarán las medidas necesarias para evitar que los titulares respectivos realicen cualquier acto contrario al aseguramiento. En caso contrario se observará lo previsto en el artículo 52 Ter de este Código.

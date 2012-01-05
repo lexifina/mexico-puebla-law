@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 61 Bis.- Tratándose de delitos cuando cuya comisión obedezca a la inclinación o abuso del sujeto activo de bebidas alcohólicas, estupefacientes, psicotrópicos o sustancias que produzcan efectos similares, la autoridad competente ordenará se le aplique tratamiento de deshabituación o desintoxicación, el cual no podrá exceder del término de la pena que corresponda al delito. Cuando se trate de penas no privativas o restrictivas de libertad, el tratamiento no excederá de seis meses.

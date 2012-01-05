@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 56 Decies.- Los inmuebles que se aseguren podrán quedar en posesión de su propietario, poseedor o de alguno de sus ocupantes, siempre que no se afecte el interés social ni el orden público. Quienes queden en posesión de los inmuebles no podrán causar daño intencional, enajenar o gravar los inmuebles a su cargo. En todo caso, se respetarán los derechos legítimos de terceros.

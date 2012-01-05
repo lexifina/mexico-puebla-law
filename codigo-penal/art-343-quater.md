@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 343 Quater.- Cuando los delitos a que se refiere esta sección, se cometan contra persona que no pueda comprender el significado del hecho para consentirlo o no pueda resistirlo, o menor de edad, aun con su consentimiento o de quien detente la guarda, custodia, atención o cuidado, tutela o patria potestad de la víctima, la pena se aumentará hasta en dos terceras partes del delito básico.
