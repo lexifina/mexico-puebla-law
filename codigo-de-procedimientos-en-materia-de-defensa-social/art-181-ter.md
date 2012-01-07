@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 181 Ter.- El Ministerio Público podrá autorizar el ingreso a un domicilio sin orden judicial a los elementos adscritos a las Instituciones Policiales que cuenten con datos ciertos y válidos que lo motiven y la obtención de la orden judicial pueda hacer ilusoria la investigación, cuando:
+I.- La acción sea ejecutada por la comisión de alguno de los siguientes delitos, homicidio, plagio, secuestro, violación, lenocinio, trata de personas, corrupción y pornografía de menores e incapaces o personas que no pudieren resistir, lesiones previstas, en el artículo 307 y violencia familiar, siempre y cuando se esté cometiendo en flagrancia; o
+II.- Los datos revelen que en el interior se comete de manera flagrante alguno de los delitos señalados en la fracción anterior.
+A fin de que las pruebas recabadas tengan eficacia probatoria, los elementos adscritos a las Instituciones Policiales, deberán observar lo dispuesto en el artículo 16 de la Constitución Política de los Estados Unidos Mexicanos, así como aportar a la autoridad competente los datos ciertos y válidos que motivaron el ingreso.

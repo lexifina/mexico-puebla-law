@@ -1,0 +1,11 @@
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 4 DE ENERO DE 2012)
+SECCIÓN SEGUNDA BIS
+DE LAS TÉCNICAS ESPECIALES DE INVESTIGACIÓN
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 73 Bis.- Para la investigación de los delitos de operaciones con recursos de procedencia ilícita, trata de personas, delincuencia organizada, secuestro, robo de vehículo, asalto, enriquecimiento ilícito y narcomenudeo, el agente del Ministerio Público podrá emplear las técnicas especiales de investigación siguientes:
+I.- Entregas vigiladas, consistentes en la identificación y, en su caso, la intercepción en tránsito de bienes o recursos que sean objeto, instrumento o producto del delito, a efecto de retirarlos o sustituirlos total o parcialmente, según sea el caso, para luego permitir, bajo vigilancia, su envío, distribución o transportación dentro del territorio del Estado o de éste hacia otro Estado o a la inversa, así como identificar y, en su caso, detener a las personas u organizaciones involucradas en su comisión; y
+II.- Operaciones encubiertas, en las siguientes modalidades:
+a) La disposición de los recursos y medios necesarios, bajo el control del agente del Ministerio Público responsable de la investigación, con objeto de descubrir cualquier actividad vinculada directa o indirectamente con los delitos ya referidos, así como la identidad de los probables responsables de este tipo de delitos; y
+b) La infiltración de agentes de la Policía Ministerial.
+Para las entregas vigiladas y operaciones en cubiertas, los agentes del Ministerio Público, previa autorización del Procurador General de Justicia o del servidor público en quien delegue esa función, podrán posponer el aseguramiento de bienes o recursos y la detención de probables responsables, con el propósito de identificar a los sujetos responsables de estos delitos, su forma de operación o ámbito de actuación, sistemas contables y de administración.
+Para el empleo de las técnicas especiales de investigación a que se refiere este artículo, se requiere de la autorización previa del Procurador General de Justicia o del servidor público en quien delegue esa función, y su aplicación se realizara bajo la orden y supervisión del agente del Ministerio Público responsable, en los términos de la autorización.

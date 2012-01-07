@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 65 Quinquies.- Tratándose de los indicios, huellas o vestigios del hecho delictuoso, el Ministerio Público ordenará la práctica de las pruebas periciales que resulten procedentes. Respecto de los instrumentos, objetos o productos del delito ordenará su aseguramiento, de conformidad con lo dispuesto en el artículo 52 del Código de Defensa Social para el Estado Libre y Soberano de Puebla.
+En caso de no efectuar lo dispuesto en el artículo 65 Quater, el Ministerio Publico lo asentará en la averiguación previa y, en su caso, dará vista a las autoridades que resulten competentes para efectos de las responsabilidades a las que haya lugar.

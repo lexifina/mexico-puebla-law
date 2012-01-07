@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 172 Doudecies.- Los servidores públicos que intervengan comunicaciones privadas sin la autorización judicial correspondiente o que la realicen en términos distintos a los autorizados, serán sancionados conforme a las leyes aplicables. De igual manera, se sancionará a los servidores públicos que participen en estos procesos de investigación, que revelen, divulguen o utilicen en forma indebida o en perjuicio de otro la información o las imágenes obtenidas durante la intervención de comunicaciones privadas, autorizadas o no.

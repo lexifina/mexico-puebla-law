@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 68 Sexies.- El Procurador General de Justicia emitirá las disposiciones necesarias para regular los dispositivos técnicos que permitan generar, enviar, recibir, consultar o archivar toda la información a que se refiere el artículo anterior, la que podrá abarcar imágenes, sonidos y video, en forma electrónica, óptica o mediante cualquier otra tecnología.

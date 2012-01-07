@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 73 Ter.- El Procurador General de Justicia o el servidor público en quien delegue esa función, podrá solicitar a las dependencias y entidades de los tres órdenes de gobierno, que presten colaboración para efectos de la ejecución de las entregas vigiladas u operaciones encubiertas, en el ámbito de sus respectivas competencias. El Estado podrá suscribir convenios generales de operaciones conjuntas para la ejecución de las técnicas especiales de investigación a que se refiere esta Sección.
+Asimismo, cuando sea indispensable para el éxito de la investigación, los particulares podrán colaborar en la ejecución de las técnicas especiales de investigación a que se refiere esta Sección, siempre que consientan en ello.

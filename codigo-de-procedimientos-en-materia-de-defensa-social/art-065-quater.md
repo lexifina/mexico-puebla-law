@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 4 DE ENERO DE 2012)
+Artículo 65 Quater.- Cuando la Policía Ministerial descubra indicios, huellas o vestigios de un hecho delictuoso, así como los instrumentos, objetos o productos del delito, además de informar de inmediato por cualquier medio eficaz al Ministerio Público, deberá:
+I.- Ubicar e identificar el lugar incluyendo plano, señalando qué diligencias se han iniciado para preservar el lugar y conservar los indicios, huellas o vestigios del hecho delictuoso;
+II.- Formular la relación de las víctimas, detenidos, testigos o cualquier otra información recabada en el lugar de los hechos y/o del hallazgo;
+III.- Recolectar, levantar, embalar técnicamente, etiquetar y trasladar los indicios, huellas o vestigios del hecho delictuoso, así como los instrumentos, objetos o productos del delito; describiendo la forma en que se haya realizado la recolección y levantamiento y las medidas tomadas para asegurar la integridad de los mismos; y
+IV.- Entregar al Ministerio Público los objetos referidos en la fracción anterior, conjuntamente con las actas, partes policiales o documentos donde se haya hecho constancia de su estado original, en los que deberá constar la firma autógrafa de los servidores públicos que intervinieron en el procedimiento.
