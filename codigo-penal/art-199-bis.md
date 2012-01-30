@@ -1,4 +1,4 @@
-(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 25 DE ENERO DE 2008)
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 25 DE ENERO DE 2008)
 SECCION CUARTA.- DELITOS CONTRA EL ORDEN EN EL DESARROLLO URBANO
 (ADICIONADO, P.O. 25 DE ENERO DE 2008)
 Artículo 199 Bis.- Se aplicarán de dos a ocho años de prisión y multa de ciento veinte hasta cuatrocientos días de salario a quien por sí o por interpósita persona:

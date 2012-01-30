@@ -1,4 +1,4 @@
-(ADICIONADA CON EL ARTICULO QUE LO INTEGRAN, P.O. 18 DE MAYO DE 2011)
+(ADICIONADA CON EL ARTÍCULO QUE LO INTEGRAN, P.O. 18 DE MAYO DE 2011)
 SECCION SEXTA.- ESPIONAJE CONTRA LAS INSTITUCIONES DE SEGURIDAD PUBLICA Y PROCURACION DE JUSTICIA
 (ADICIONADO, P.O. 18 DE MAYO DE 2011)
 Artículo 186 Septies.- A quien, con la intención de obstruir el desempeño legítimo de las instituciones de seguridad pública o de encubrir o facilitar un delito, aceche, vigile o realice actos tendentes (sic) a obtener información sobre la ubicación o actividades de los servidores públicos de las instituciones de seguridad pública o procuración de justicia, que realicen operativos, labores de seguridad pública, persecución, sanción de delitos o de ejecución de penas, se impondrá una pena de dos a seis años de prisión y multa de cincuenta a doscientos días de salario mínimo.

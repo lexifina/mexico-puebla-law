@@ -1,5 +1,6 @@
-N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LAS FE DE ERRATAS PUBLICADAS EL 27 DE ENERO Y 5 DE MARZO DE 2012 EN EL P.O., SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
+N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LAS FE DE ERRATAS PUBLICADAS EL 5 DE MARZO DE 2012 EN EL P.O., SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
 CÓDIGO DE DEFENSA SOCIAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
+N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 27 DE ENERO DE 2012 NO APLICA AL ARTICULADO DEL DECRETO PUBLICADO EN EL P.O. DE 4 DE ENERO DE 2012.
 Código publicado en la Segunda Sección del Periódico Oficial del Estado de Puebla, el martes 23 de diciembre de 1986.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
 GUILLERMO JIMENEZ MORALES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a los habitantes del mismo sabed:
@@ -10,4 +11,4 @@ Que por oficio número 03722 de fecha 24 de septiembre de 1986, el Ciudadano Lic
 Que para cumplir con lo que disponen los artículos 64 fracción I de la Constitución Política del Estado, 99, 105 y 141 fracción VI de la Ley Orgánica y Reglamentaria de este Poder Legislativo, se nos turnó dicha Iniciativa a la Comisión de Gobernación, Legislación, Puntos Constitucionales, Justicia y Elecciones, la que en Sesión Pública celebrada en este día, presentó su dictamen proponiendo ciertas modificaciones a la Iniciativa del Ejecutivo, que fueron aprobadas.
 Que estando satisfechos los requisitos de los Artículos 57 fracción I, 63 fracción I, 79 fracción VI de la Constitución Política Local, 183, 184 y 185 de la Ley Orbánica (sic) y Reglamentaria del Poder Legislativo,
 D E C R E T A :
-CODIGO DE DEFENSA SOCIAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
+CÓDIGO DE DEFENSA SOCIAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA

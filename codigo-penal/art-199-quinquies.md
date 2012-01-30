@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 16 DE ABRIL DE 2010)
+(REFORMADO PRIMER PÁRRAFO, P.O. 16 DE ABRIL DE 2010)
 Artículo 199 Quinquies.- Son aplicables a los delitos previstos en esta Sección, las siguientes disposiciones:
 (ADICIONADA, P.O. 25 DE ENERO DE 2008)
 I.- Las penas que resulten por la comisión de los delitos en mención, se impondrán independientemente de las que correspondan en caso de acreditarse un daño patrimonial o lucro indebido con motivo de los mismos;
