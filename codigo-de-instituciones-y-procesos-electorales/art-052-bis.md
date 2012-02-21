@@ -1,5 +1,5 @@
-(ADICIONADO, P.O. 5 DE DICIEMBRE DE 2003)
-ARTÍCULO 52 bis.- Los partidos políticos deberán rendir ante la comisión correspondiente del Instituto, los informes sobre el origen y monto de los ingresos que reciban por cualquier modalidad de financiamiento, así como su empleo y aplicación, atendiendo a las siguientes reglas:
+(REFORMADO PRIMER PÁRRAFO, P.O. 20 DE FEBRERO DE 2012)
+ARTICULO 52 BIS.- Los partidos políticos deberán rendir ante la Unidad de Fiscalización del Instituto, los informes sobre el origen y monto de los ingresos que reciban por cualquier modalidad de financiamiento, así como su empleo y aplicación, atendiendo a las siguientes reglas:
 A.- Informes anuales:
 I.- Deberán presentarse dentro de los sesenta y cinco días siguientes al mes de diciembre del año del ejercicio que se reporte;
 II.- Se reportarán los ingresos totales y gastos ordinarios que los partidos políticos hayan realizado durante el ejercicio objeto del informe. Esto sin perjuicio de que los partidos políticos estén obligados a presentar informes trimestrales en los que se deberá entregar la documentación justificatoria de ese periodo, en los términos y formas que se indiquen en el respectivo reglamento que para ello emita el Consejo General.

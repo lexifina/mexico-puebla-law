@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 20 DE FEBRERO DE 2012)
+ARTÍCULO 65 BIS.- Serán coaliciones parciales las constituidas para postular hasta ocho diputados de mayoría relativa o integrantes de hasta cuarenta Ayuntamientos.
+El registro de las coaliciones parciales será en la misma fecha que el registro de las coaliciones totales. Los partidos políticos coaligantes tendrán la obligación de entregar, al momento del registro de la coalición el convenio aprobado por los partidos políticos; así como la plataforma electoral común para los distritos electorales y Ayuntamientos de que se trate. Cada partido político conservará su propia identidad y su votación correspondiente, así como el acceso a los tiempos de radio y televisión como partidos políticos por separado. El mismo criterio será aplicable para su representación en los órganos del Instituto y en las mesas directivas de casilla.
+El escrutinio y cómputo de los votos que le corresponderán a los partidos coaligados se llevará a cabo conforme al procedimiento previsto para las candidaturas comunes en el artículo 292 Bis de este Código.
+En materia de topes de gastos de campaña, se aplicarán y contabilizarán por candidato, con independencia del número de partidos coaligados.
+Si el número de diputados postulados por la coalición es mayor de ocho distritos uninominales o de cuarenta municipios, se considerará coalición total.
+Ningún partido político podrá pertenecer a dos coaliciones parciales distintas, ni combinar la postulación de candidatos comunes con la formación de coaliciones parciales en el caso de diputados y de Ayuntamientos.
+Concluido el proceso electoral dejará de tener vigencia el convenio que dio origen a la coalición parcial.
