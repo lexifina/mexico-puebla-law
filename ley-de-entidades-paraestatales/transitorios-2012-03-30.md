@@ -1,0 +1,6 @@
+P.O. 30 DE MARZO DE 2012.
+[N. DE E. TRANSITORIOS DEL DECRETO POR EL QUE "SE ADICIONA EL ARTÍCULO 18 BIS Y UN SEGUNDO PÁRRAFO AL ARTÍCULO 56 DE LA LEY DE ENTIDADES PARAESTATALES DEL ESTADO DE PUEBLA".]
+ARTÍCULO PRIMERO.- El presente Decreto deberá publicarse en el Periódico Oficial del Estado y entrará en vigor al día siguiente de su publicación.
+ARTÍCULO SEGUNDO.- En caso, de que llegaren a existir recursos disponibles en el Fondo de Apoyo para Infraestructura y Seguridad y en el Fondo Nacional de Infraestructura a que se refiere el inciso (a) del Artículo Primero de la Sección Primera del presente Decreto, de manera posterior a la contratación de los financiamientos previstos en dicho Artículo, el Ejecutivo del Estado, por conducto de la Secretaría de Finanzas, podrá gestionar y tramitar la obtención de recursos hasta por los montos que estén disponibles para tales fines, conforme a las Reglas de Operación y/o demás disposiciones que para tales efectos se emitan.
+ARTÍCULO TERCERO.- El monto de las modificaciones que se realicen en términos de lo señalado en el Artículo Quinto de la Sección Primera del presente Decreto, no se considerará dentro del monto autorizado en los incisos (a) y (c) del Artículo Primero de la misma Sección.
+ARTÍCULO CUARTO.- Quedan sin efecto todas aquellas disposiciones que se opongan al presente Decreto.
