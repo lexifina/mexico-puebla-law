@@ -1,3 +1,5 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 14 DE DICIEMBRE DE 2009)
+DE LA LICENCIA DE FUNCIONAMIENTO
 (ADICIONADO, P.O. 14 DE DICIEMBRE DE 2009)
 Artículo 639 Quinquies.- Para adquirir la licencia de funcionamiento para la comercialización de productos cárnicos y/o subproductos, así como la actualización de los locales comerciales, el interesado deberá presentar ante la Tesorería Municipal a través del Departamento de Licencias y Padrón de Contribuyentes de la Dirección de Ingresos o el área asignada en su caso, los siguientes documentos:
 A. Para el caso de la licencia de funcionamiento:
