@@ -1,0 +1,3 @@
+P.O. 4 DE JUNIO DE 2012.
+PRIMERO.- Las presentes reformas, adiciones y derogaciones del Código Reglamentario para el Municipio de Puebla, entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado de Puebla.
+SEGUNDO.- Los efectos de la reforma del artículo 670, entrarán en vigor hasta que concluya el periodo de los representantes que integren la Comisión de Asesoría y Admisión de Peritos Directores Responsables de Obra y Corresponsables al momento de la publicación de las presentes reformas, adiciones y derogaciones del Código Reglamentario para el Municipio de Puebla, en el Periódico Oficial del Estado de Puebla.

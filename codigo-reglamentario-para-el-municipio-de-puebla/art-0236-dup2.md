@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 25 DE MAYO DE 2012)
+Artículo 236 Sépties.- Las faltas sólo se sancionarán, cuando se hubiesen consumado o cuando su no consumación se deba a hechos ajenos a la voluntad del infractor y la potestad para sancionarlas prescribe a partir del tercer día en que se cometen; en los casos de infracciones continuas o continuadas, la prescripción comenzará a contarse desde que la falta deje de cometerse.

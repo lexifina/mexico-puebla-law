@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 30 DE MARZO DE 2009)
 DEL REFRENDO Y DE LA CESIÓN DE DERECHOS
-(REUBICADO Y REFORMADO PRIMER PARRAFO, P.O. 30 DE MARZO DE 2009)
+(REUBICADO Y REFORMADO PRIMER PÁRRAFO, P.O. 30 DE MARZO DE 2009)
 Articulo 1680 Bis.- El prestador del servicio refrendará anualmente la licencia de estacionamiento, y podrá ceder sus derechos sobre dicho servicio.
 (ADICIONADO, P.O. 26 DE FEBRERO DE 2007)
 Los interesados deberán presentar ante la Tesorería, dentro de los treinta días anteriores a la fecha de vencimiento de la licencia, su solicitud de revalidación acompañada de una fotocopia en donde conste que la póliza de seguro obligatoria estará vigente durante el año en que prestará el servicio.

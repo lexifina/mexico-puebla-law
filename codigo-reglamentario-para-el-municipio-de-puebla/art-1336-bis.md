@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 2008)
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2008)
 Artículo 1336 Bis.- En el caso de que el retiro de un anuncio sea efectuado por la Autoridad, el material que resulte quedará bajo resguardo de la misma en el lugar que para el efecto se destine, hasta por un plazo de tres meses contados a partir de la fecha en que se realice el retiro, a cuyo vencimiento se estará a lo dispuesto en el Código Fiscal y Presupuestario para el Municipio de Puebla.
 (ADICIONADO, P.O. 17 DE FEBRERO DE 2006)
 El material que resulte del retiro, podrá ser devuelto a quien lo solicite, debiendo acreditar:

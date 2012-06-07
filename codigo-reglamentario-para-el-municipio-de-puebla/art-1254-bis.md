@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 11 DE FEBRERO DE 2011)
+(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE FEBRERO DE 2011)
 Artículo 1254 Bis.- La Agencia tiene las facultades y obligaciones siguientes:
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)
 I. Someter a consideración del Ayuntamiento, los programas en materia de anuncios para su aprobación;

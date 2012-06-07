@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 30 DE MARZO DE 2009)
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE MARZO DE 2009)
 Artículo 1679 Ter.- Sin perjuicio de lo que establezcan las disposiciones federales y estatales, en forma enunciativa más no limitativa, son obligaciones de los prestadores de servicio:
 (ADICIONADA, P.O. 26 DE FEBRERO DE 2007)
 I. Entregar en tiempo y forma la documentación solicitada por las autoridades municipales para el otorgamiento de la licencia;

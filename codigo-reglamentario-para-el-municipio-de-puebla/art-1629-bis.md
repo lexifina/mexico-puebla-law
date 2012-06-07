@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 29 DE AGOSTO DE 2008)
+(REFORMADO PRIMER PÁRRAFO, P.O. 29 DE AGOSTO DE 2008)
 Artículo 1629 Bis.- Los inspectores municipales de la Unidad de Normatividad y Regulación Comercial, serán médicos veterinarios zootécnicas aprobados por la Secretaría y tendrán las facultades y obligaciones siguientes:
 (ADICIONADA, P.O. 23 DE MAYO DE 2007)
 I.- Vigilar que el rastro y lugares autorizados procedan de acuerdo a lo dispuesto en el presente Capítulo y disposiciones aplicables;

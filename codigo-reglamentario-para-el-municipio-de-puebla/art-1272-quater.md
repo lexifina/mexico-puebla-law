@@ -1,4 +1,4 @@
-(REFORMADO [N. DE E. REPUBLICADO] PRIMER PARRAFO, P.O. 29 DE AGOSTO DE 2008)
+(REFORMADO [N. DE E. REPUBLICADO] PRIMER PÁRRAFO, P.O. 29 DE AGOSTO DE 2008)
 Artículo 1272 Quáter.- Para la fijación, instalación y ubicación de los anuncios espectaculares, se deberá cumplir con lo siguiente:
 (ADICIONADA, P.O. 19 DE DICIEMBRE DE 2007)
 l. Sus características podrán tener un área de exhibición que podrá exceder como máximo hasta en 1.5 metros las dimensiones de 12.90 metros de longitud por 7.20 metros de ancho y una altura de 25 metros, medida sobre nivel de banqueta a la parte superior del anuncio;

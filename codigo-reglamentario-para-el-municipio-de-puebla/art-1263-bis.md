@@ -1,5 +1,5 @@
-(DEROGADO SEGUNDO PARRAFO, P.O. 31 DE DICIEMBRE DE 2008)
-(DEROGADO TERCER PARRAFO, P.O. 31 DE DICIEMBRE DE 2008)
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2008)
+(DEROGADO TERCER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2008)
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
 Artículo 1263 Bis.- Para la fijación, instalación, distribución, ubicación o modificación de anuncios tipo tótem se deberá cumplir con lo siguiente:
 I. Se permite la instalación de anuncios tipo tótem en centros o plazas comerciales; un tótem por cada calle que rodee el centro comercial. La estructura se colocará en los estacionamientos, previa Licencia por parte de la Agencia;
