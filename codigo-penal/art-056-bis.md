@@ -1,2 +1,1 @@
-(REFORMADO, P.O. 27 DE AGOSTO DE 2010)
-Artículo 56 Bis.- Los objetos, bienes o valores que no hayan sido reclamados en el término señalado en el artículo 53 Bis por quien tenga derecho a ellos, serán declarados en estado de abandono, mediante acuerdo que emita la autoridad investigadora, el cual se publicará por una sola vez en el Periódico Oficial del Estado y en un diario de mayor circulación en la Entidad, para que en el improrrogable término de treinta días naturales realice las impugnaciones correspondientes ante la autoridad investigadora; transcurrido el plazo sin reclamación alguna, el acuerdo surtirá sus efectos legales.
+Artículo 56 Bis.- (DEROGADO, P.O. 25 DE JULIO DE 2012)
