@@ -1,0 +1,6 @@
+P.O. 10 DE AGOSTO DE 2012.
+ACUERDO POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DEL CAPÍTULO 7 DEL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA.
+PRIMERO.- El presente Dictamen entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Una vez publicada la presente reforma en el Periódico Oficial del Estado, la Dirección requerirá de un periodo de sesenta días naturales a las Mesas Directivas de Vecinos para que presente sus Estatutos aprobados y sean registrados. Una vez notificada la Mesa Directiva de Vecinos tendrá un plazo máximo de sesenta días naturales para registrar los Estatutos ante la Dirección.
+TERCERO.- Se derogan las disposiciones que se opongan a lo establecido en las reformas, adiciones y derogaciones al presente Código.
+CUARTO.- Se podrá reiniciar el proceso de elección de las Mesas Directivas de Vecinos; la toma de decisiones y la ejecución de acciones de las Mesas Directivas de Vecinos que ya se encuentren en funciones y la realización de las sesiones ordinarias y extraordinarias de la Asamblea General de los barrios, colonias, fraccionamientos y unidades habitacionales en funciones, una vez que las presentes reformas se encuentren publicadas en el Periódico Oficial del Estado.

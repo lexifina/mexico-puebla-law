@@ -1,4 +1,4 @@
-(ADICIONADO CON EL ARTICULO QUE LO INTEGRA, P.O. 31 DE DICIEMBRE DE 2008)
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 31 DE DICIEMBRE DE 2008)
 DE LAS VISITAS DE VERIFICACIÓN Y CLAUSURAS
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
 Artículo 490 Ter.- Las Autoridades competentes, para comprobar el cumplimiento de las disposiciones legales están facultadas para llevar acabo visitas de verificación o inspección tendientes a la comprobación del cumplimiento de obligaciones reglamentarias.
