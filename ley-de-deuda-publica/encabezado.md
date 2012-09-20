@@ -1,4 +1,4 @@
-LEY DE DEUDA PUBLICA PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA
+LEY DE DEUDA PÚBLICA PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA
 Ley publicada en la Tercera Sección del Periódico Oficial del Estado de Puebla, el lunes 18 de diciembre de 2006.
 DECRETO del H. Congreso del Estado, que expide la LEY DE DEUDA PÚBLICA PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado de Puebla.
