@@ -1,5 +1,5 @@
 P.O. 5 DE MARZO DE 2001.
-DECRETO POR EL QUE SE SE REFORMAN LAS FRACCIONES IX, X, XI Y XII DEL ARTÍCULO 57; LA FRACCIÓN III DEL 61; LOS ARTÍCULOS 113, 114, 115 Y 116 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE PUEBLA.
+DECRETO POR EL QUE SE REFORMAN LAS FRACCIONES IX, X, XI Y XII DEL ARTÍCULO 57; LA FRACCIÓN III DEL 61; LOS ARTÍCULOS 113, 114, 115 Y 116 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE PUEBLA.
 ARTÍCULO PRIMERO.- El Honorable Congreso del Estado Libre y Soberano de Puebla, declara que estas reformas han sido aprobadas por la mayoría de los Ayuntamientos de la Entidad y forman parte de la Constitución Política del Estado Libre y Soberano de Puebla.
 ARTÍCULO SEGUNDO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
 ARTÍCULO TERCERO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
