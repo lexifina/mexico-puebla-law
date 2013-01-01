@@ -1,6 +1,7 @@
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 2007)
 ARTICULO 46 A.- Cuando las autoridades fiscales soliciten de los contribuyentes, responsables solidarios o terceros con ellos relacionados; informes, datos o documentos o pidan la presentación de la contabilidad o parte de ella, para el ejercicio de sus facultades de comprobación, fuera de una visita domiciliaria, se estará a lo siguiente:
-I.- La solicitud se notificará a la persona a la que va dirigida en el domicilio fiscal manifestado ante el Registro Estatal de Contribuyentes, en su defecto, tratándose de personas físicas, podrá notificarse en su casa habitación o lugar en que éstas se encuentren;
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2012)
+I.- La solicitud se notificará a la persona a la que va dirigida en el domicilio fiscal manifestado en el Registro Estatal de Contribuyentes, en su defecto, en alguno de los lugares a que se refiere el artículo 22 de este Código;
 II.- En la solicitud se indicará el lugar y el plazo en los cuales se deben proporcionar los informes o documentos;
 III.- Los informes, libros y documentos requeridos deberán ser proporcionados por la persona a quien se dirigió la solicitud o por su representante legal;
 IV.- Como consecuencia de la revisión de los informes, datos, documentos o contabilidad requeridos a los contribuyentes, responsables solidarios o terceros con ellos relacionados, las autoridades fiscales formularán oficio de observaciones, en el cual harán constar en forma circunstanciada los hechos u omisiones que se hubiesen conocido y entrañen incumplimiento de las disposiciones fiscales del contribuyente o responsable solidario.

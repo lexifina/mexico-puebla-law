@@ -6,8 +6,8 @@ Para tales efectos la Autoridad Fiscal tomará en consideración el Indice Nacio
 En los casos en que el Indice Nacional de Precios al Consumidor del mes anterior al más reciente del período, no haya sido publicado por el Banco de México, la actualización de que se trate se realizará aplicando el último índice mensual publicado.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1995)
 Para efectos de aplicación, el factor de actualización deberá calcularse hasta el diezmilésimo.
-(ADICIONADO, P.O. 15 DE DICIEMBRE DE 2004)
-Cuando el resultado de la operación a que se refiere el primer párrafo de este artículo sea menor a 1, el factor de actualización que se aplicará al monto de las contribuciones, aprovechamientos y devoluciones a cargo del fisco estatal, así como a los valores de bienes u operaciones de que se traten será 1.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2012)
+Cuando el resultado de la operación a que se refiere el primer párrafo de este artículo sea menor a 1, el factor de actualización que se aplicará al monto de las contribuciones, aprovechamientos y devoluciones a cargo del fisco estatal, así como a los valores de bienes u operaciones de que se trate será 1.
 (REFORMADO, P.O. 27 DE FEBRERO DE 2004)
 En las contribuciones, la actualización se calculará de conformidad con lo dispuesto en este artículo sobre el total excluyendo los propios recargos, los gastos de ejecución y la indemnización a que se refiere el tercer párrafo del artículo 33 de este Código.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1995)

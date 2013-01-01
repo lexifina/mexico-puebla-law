@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
+ARTICULO 75-D.- Cometen los delitos relacionados con los Padrones de Contribuyentes, quienes:
+I.- Omitan solicitar su inscripción o la de un tercero en el registro estatal de contribuyentes por más de un año contado a partir de la fecha en que debió hacerlo, a menos que se trate de personas cuya solicitud de inscripción deba ser presentada por otro;
+II.- Rindan con falsedad al citado registro, los datos, informes o avisos a que se encuentra obligado;
+III.- Usen intencionalmente más de una clave del Registro Estatal de Contribuyentes; y
+IV.- Desocupen o abandonen el local donde tengan su domicilio fiscal, sin presentar el aviso de cambio de domicilio al Registro Estatal de Contribuyentes, cuando después de la notificación de la orden de visita o de la solicitud de información y documentación, o bien después de que se le hubiera notificado un crédito fiscal y antes de que éste se haya garantizado, pagado o quedado sin efectos, o tratándose de personas morales que hubieran realizado actividades por las que deban pagar contribuciones, haya transcurrido más de un año contado a partir de la fecha en que legalmente se tenga obligación de presentar dicho aviso.

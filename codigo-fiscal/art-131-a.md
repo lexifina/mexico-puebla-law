@@ -1,3 +1,4 @@
+(DEROGADO ÚLTIMO PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2012)
 (ADICIONADO, P.O. 27 DE FEBRERO DE 2004)
 ARTICULO 131-A.- Cuando se alegue que un acto administrativo no fue notificado o que lo fue ilegalmente, siempre que se trate de los recurribles conforme al artículo 129, se estará a las reglas siguientes:
 I.- Si el particular afirma conocer el acto administrativo, la impugnación contra la notificación se hará valer mediante la interposición del recurso administrativo a que se refiere este capítulo, en el que manifestará la fecha en que lo conoció.
