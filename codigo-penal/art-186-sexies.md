@@ -1,4 +1,6 @@
-(ADICIONADA CON EL ARTÍCULO QUE LO INTEGRA, P.O. 22 DE ENERO DE 2010)
-SECCION QUINTA.- USO INDEBIDO DE LOS SISTEMAS TELEFONICOS DE EMERGENCIA
-(ADICIONADO, P.O. 22 DE ENERO DE 2010)
-Artículo 186 Sexies.- Al que realice una llamada de emergencia o permita utilizar su teléfono, a sabiendas de que es una llamada o aviso falso de alerta con el único objeto de inducir al error y movilizar a los sistemas de emergencias y urgencias o su equivalente, se le impondrá de dos meses a dos años de prisión y multa de diez a cien días de salario.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2012)
+Artículo 186 Sexies.- El miembro de la delincuencia organizada o participante de la asociación delictuosa que preste ayuda eficaz para la investigación y persecución de otro u otros participantes de la misma, podrá recibir los beneficios siguientes:
+I.- Cuando no sea sujeto a investigación, los elementos de prueba que aporte o se deriven de la investigación iniciada por su colaboración, no serán tomados en cuenta en su contra. Este beneficio sólo podrá otorgarse en una ocasión respecto de la misma persona;
+II.- Cuando exista una investigación en la que el colaborador esté implicado y éste aporte indicios para la consignación de otros participantes de la delincuencia organizada o asociación delictuosa, la pena que le correspondería por los delitos por él cometidos, podrá ser reducida hasta en dos terceras partes;
+III.- Cuando durante el proceso penal, el indiciado aporte pruebas ciertas, suficientes para sentenciar a otros miembros de la delincuencia organizada con funciones de administración, dirección o supervisión, la pena que le correspondería por los delitos por los que se le juzga, podrá reducirse hasta en una mitad; y
+IV.- Cuando un sentenciado aporte pruebas ciertas, suficientemente valoradas por el Juez, para sentenciar a otros miembros de la delincuencia organizada con funciones de administración, dirección o supervisión, podrá otorgársele la remisión parcial de la pena, hasta en dos terceras partes de la pena privativa de libertad impuesta.

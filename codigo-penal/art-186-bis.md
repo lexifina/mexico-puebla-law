@@ -1,4 +1,10 @@
-(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2004)
-Artículo 186 Bis.- Habrá delincuencia organizada cuando un grupo estructurado de tres o más personas actúen concertada y jerárquicamente, con el propósito de realizar conductas en forma permanente o reiterada o con fines predominantemente lucrativos que, por sí o unidas a otras, tengan como fin o resultado, la comisión de alguno o algunos de los delitos previstos en este Código.
-Al miembro de delincuencia organizada se le sancionará con prisión de uno a diez años y multa de doscientos cincuenta a quince mil días de salario, independientemente de la sanción que le corresponda por el delito que cometiere.
-Cuando el miembro de delincuencia organizada realice o tenga asignadas en ésta, funciones de administración, dirección o supervisión, la sanción señalada en el párrafo anterior se aumentará hasta en una mitad.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2012)
+Artículo 186 Bis.- Habrá delincuencia organizada cuando tres o más personas se organicen de hecho para realizar, en forma permanente o reiterada, conductas que por sí o unidas a otras, tienen como fin o resultado cometer alguno o algunos de los delitos de este Código, siguientes:
+I.- Terrorismo, previsto en el artículo 160;
+II.- Corrupción de menores o de personas que no tienen capacidad para comprender el significado del hecho o de personas que no tienen capacidad para resistirlo previsto en los artículos 217 y 218;
+III.- Pornografía de personas menores o de personas que no tienen capacidad para comprender el significado del hecho o de personas que no tienen capacidad para resistirlo, previsto en el artículo 220;
+IV.- Lenocinio de personas menores de dieciocho años de edad o de personas que no tienen capacidad para comprender el significado del hecho o de personas que no tienen capacidad para resistirlo, previsto en los artículo 226 y 227;
+V.- Asalto, previsto en los artículos 294 y 298;
+VI.- Robo de vehículos, previsto en los artículos 374 fracción V y 375;
+VII.- Trata de personas, previsto en el artículo 228; y
+VIII.- Secuestro previsto en los artículos 302, 302 Bis y 302 Ter.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
+Artículo 183 Bis.- La sanción para la asociación delictuosa se aumentará de uno a diez años de prisión y multa de doscientos cincuenta a quince mil días de salario, independientemente de la sanción que corresponda por el delito que se cometiere, cuando actúen de forma estructurada con el propósito de cometer algún delito de los de este Código, con excepción de los previstos en el artículo 186 Bis de esta Sección.

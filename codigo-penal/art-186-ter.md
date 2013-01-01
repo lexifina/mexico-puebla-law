@@ -1,3 +1,4 @@
-(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2004)
-Artículo 186 Ter.- Si las conductas correspondientes a la delincuencia organizada o a la asociación delictuosa las realiza alguien que sea o haya sido servidor público de la procuración o administración de justicia, de alguna corporación de seguridad pública, de la administración de recursos públicos o miembro de una empresa de Seguridad Privada; se le aumentará la sanción correspondiente hasta en una mitad y se le impondrá, además, destitución, en su caso, e inhabilitación de uno a diez años para desempeñar otro empleo, cargo o comisión públicos, o para prestar servicios en alguna de las empresas de seguridad privada.
-Cuando los miembros de la delincuencia organizada o participantes de la asociación delictuosa utilicen para delinquir a menores de edad o incapaces, las penas correspondientes a estos ilícitos se aumentarán hasta en una mitad.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2012)
+Artículo 186 Ter.- Sin perjuicio de las penas que correspondan por el delito o delitos que se cometan, al miembro de la delincuencia organizada se le aplicarán las penas siguientes:
+I.- A quien tenga funciones de administración, dirección o supervisión, de ocho a dieciséis años de prisión y de quinientos a veinticinco mil días de multa, o
+II.- A quien no tenga las funciones anteriores, de cuatro a ocho años de prisión y de doscientos cincuenta a doce mil quinientos días de multa.

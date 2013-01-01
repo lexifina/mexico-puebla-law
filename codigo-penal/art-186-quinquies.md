@@ -1,6 +1,2 @@
-(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2004)
-Artículo 186 Quinquies.- El miembro de la delincuencia organizada o participante de la asociación delictuosa que preste ayuda eficaz para la investigación y persecución de otro u otros participantes de la misma, podrá recibir los beneficios siguientes:
-I.- Cuando no exista averiguación previa en su contra, los elementos de prueba que aporte o se deriven de la averiguación previa iniciada por su colaboración, no serán tomados en cuenta en su contra. Este beneficio sólo podrá otorgarse en una ocasión respecto de la misma persona;
-II.- Cuando exista una averiguación previa en la que el colaborador esté implicado y éste aporte indicios para la consignación de otros participantes de la delincuencia organizada, o asociación delictuosa, la pena que le correspondería por los delitos por él cometidos, podrá ser reducida hasta en dos terceras partes;
-III.- Cuando durante el proceso penal, el indiciado aporte pruebas ciertas, suficientes para sentenciar a otros miembros de la delincuencia organizada con funciones de administración, dirección o supervisión, la pena que le correspondería por los delitos por los que se le juzga, podrá reducirse hasta en una mitad, y
-IV.- Cuando un sentenciado aporte pruebas ciertas, suficientemente valoradas por el juez, para sentenciar a otros miembros de la delincuencia organizada con funciones de administración, dirección o supervisión, podrá otorgársele la remisión parcial de la pena, hasta en dos terceras partes de la pena privativa de libertad impuesta.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2012)
+Artículo 186 Quinquies.- El plazo de la prescripción de la acción y la sanción penal de las conductas delictivas se duplicará cuando se cometan por la delincuencia organizada.
