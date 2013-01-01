@@ -1,3 +1,8 @@
-(REFORMADO, P.O. 23 DE MARZO DE 2007)
-Artículo 413 Bis.- Al que sin consentimiento realizare o pintare signos, leyendas, dibujos o cualquiera otra manifestación gráfica, en bienes inmuebles de propiedad privada se le impondrá prisión de treinta días a tres años y multa de diez a doscientos cincuenta días de salario.
-Si las conductas a que se refiere el párrafo anterior se realizaren en una escuela, biblioteca, edificio público, museo, monumento u obra de arte, o que se considere parte del patrimonio histórico, artístico o cultural del Estado, se impondrán al responsable de sesenta días a seis años de prisión y multa de veinte a quinientos días de salario.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2012)
+Artículo 413 Bis.- Al que sin consentimiento de quien deba darlo, causare daño, destrucción o deterioro de bien ajeno por medio de pintar signos, leyendas, dibujos o cualquiera otra manifestación gráfica, se aplicarán las siguientes sanciones:
+I.- Si se realizare en bienes de propiedad privada, se le impondrá de treinta días a tres años de prisión y multa de diez a doscientos cincuenta días de salario; y
+II.- Si se realizare en bienes de dominio público, se le impondrá de cuarenta días a cuatro años de prisión y multa de veinte a trescientos días de salario.
+En los casos previstos en este artículo, la sanción podrá ser sustituida por trabajo a favor de la comunidad en instituciones públicas, en actividades relacionadas con la restauración, preservación y/o mejoramiento de los elementos urbanos o de la protección del patrimonio histórico, artístico, arquitectónico y cultural de los centros de población.
+La institución favorecida con la prestación del trabajo a favor de la comunidad, deberá rendir mensualmente a la autoridad correspondiente, informe de las actividades realizadas por el sentenciado, debiendo comunicar sus ausencias o faltas disciplinarias.
+Si las ausencias del sentenciado a las jornadas de trabajo a favor de la comunidad son injustificadas durante tres días en el cumplimiento de la pena, se le notificará al Juez quien ordenará, en su caso, que la pena sustituida se ejecute, computándose los días de trabajo que hayan sido cumplidos en favor de la comunidad.
+En la reparación del daño, el juez velará por la restauración, de ser posible, de los bienes afectados.

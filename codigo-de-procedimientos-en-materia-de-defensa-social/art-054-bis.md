@@ -16,5 +16,7 @@ VIII.- Cuando la víctima o el ofendido sean menores de edad, no estarán obliga
 IX.- Solicitar a las autoridades competentes para sí o para los sujetos vinculados a ella, las medidas y providencias necesarias tendientes a proteger su integridad corporal, domicilio, posesiones o derechos; cuando existan datos fundados de que éstos puedan ser afectados por el o los responsables del delito o por terceros; y
 (ADICIONADA, P.O. 13 DE DICIEMBRE DE 2004)
 X.- Interponer el recurso de apelación en contra de las sentencias de primera instancia, solo cuando la impugnación verse sobre las cuestiones relativas a la reparación del daño proveniente de delito, y
-(REFORMADA, P.O. 13 DE DICIEMBRE DE 2004)
-XI.- Las demás que señalen las Leyes.
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2012)
+XI.- Que se resguarde su identidad y otros datos personales, en los caos (sic) previstos en la fracción V del apartado C del artículo 20 de la Constitución Política de los Estados Unidos Mexicanos y cuando a juicio del juzgador sea necesario para su protección, dejando a salvo en todo caso los derechos de la defensa; y
+(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2012)
+XII.- Los demás que señalen las leyes.
