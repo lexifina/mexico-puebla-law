@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE ENERO DE 2013)
+Artículo 304 Bis. Sólo pueden circular por carriles exclusivos del corredor de transporte público masivo RUTA, o de contraflujo además de los vehículos del servicio de transporte público que cuenten con la autorización respectiva, los vehículos destinados a la prestación de servicios de emergencia Puebla, en cuyo caso deben de circular con torretas encendidas y la sirena abierta.
