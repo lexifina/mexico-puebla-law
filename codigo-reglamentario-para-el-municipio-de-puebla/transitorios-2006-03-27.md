@@ -12,7 +12,7 @@ NOVENO. Las licencias, permisos, autorizaciones refrendos y en su caso las crede
 DÉCIMO. Se instruye al Tesorero Municipal, para que en un periodo máximo de sesenta días hábiles, contados a partir del día siguiente de la publicación del presente Acuerdo en el Periódico Oficial del Estado, remita a este Honorable Cabildo para su aprobación, los formatos únicos de fiscalización por materia, que serán empleados en el Departamento de Registro y Fiscalización, adscrito a la Dirección de Ingresos de la Tesorería Municipal.
 DÉCIMO PRIMERO. Todos los Servidores de la Administración Pública Municipal Centralizada o Descentralizada, que lleven a cabo acciones de supervisión, inspección, auditoria o fiscalización, deberán presentar ante la Contraloría Municipal, declaración patrimonial de apertura o su correspondiente actualización anual, de conformidad con lo establecido por la fracción VI del artículo 82 de la Ley de Responsabilidades de los Servidores Públicos del Estado de Puebla.
 DÉCIMO SEGUNDO. Se derogan las disposiciones que se opongan al presente Acuerdo.
-N. DE E. DEBIDO A SU IMPORTANCIA, SE TRANSCRIBE EL DICTAMEN DEL ACUERDO POR EL QUE SE MODIFICA EL PRESENTE CODIGO.
+N. DE E. DEBIDO A SU IMPORTANCIA, SE TRANSCRIBE EL DICTAMEN DEL ACUERDO POR EL QUE SE MODIFICA EL PRESENTE CÓDIGO.
 Por todo lo antes expuesto y debidamente fundado, sometemos a la Consideración de este Cuerpo Edilicio, para su discusión y aprobación, el siguiente:
 DICTAMEN
 PRIMERO.- Se aprueba en lo general y en lo particular el Dictamen por el que se reforman, derogan y adicionan diversas disposiciones del Código Reglamentario para el Municipio de Puebla, en términos que se desprenden del considerando XXII del presente.
