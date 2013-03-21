@@ -25,4 +25,4 @@ XI.- Rendir mensualmente un informe al Titular de la Unidad de Normatividad y Re
 (ADICIONADA, P.O. 23 DE MAYO DE 2007)
 XII.- Realizar el decomiso de los productos cárnicos que no tengan la documentación comprobatoria de sanidad, legal procedencia y/o los sellos sanitarios del Rastro Municipal o del rastro al que pertenecen; y
 (ADICIONADA, P.O. 23 DE MAYO DE 2007)
-XlII.- Las que les confiera el Tesorero Municipal.
+XIII.- Las que les confiera el Tesorero Municipal.
