@@ -1,4 +1,3 @@
-(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2009)
 Artículo 639 Terdecies.- Los locales que se destinen para expendio de productos cárnicos y/o subproductos, deberán reunir los siguientes requisitos:
 I. Local de 3 x 3 metros mínimo, o su equivalente, siempre que de frente no tenga menos de 2 metros, en material de concreto y piso de mosaico;
 II. Enjarrado o yeso, pintado en aceite y de color blanco;
