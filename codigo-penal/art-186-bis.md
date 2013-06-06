@@ -5,6 +5,8 @@ II.- Corrupción de menores o de personas que no tienen capacidad para comprende
 III.- Pornografía de personas menores o de personas que no tienen capacidad para comprender el significado del hecho o de personas que no tienen capacidad para resistirlo, previsto en el artículo 220;
 IV.- Lenocinio de personas menores de dieciocho años de edad o de personas que no tienen capacidad para comprender el significado del hecho o de personas que no tienen capacidad para resistirlo, previsto en los artículo 226 y 227;
 V.- Asalto, previsto en los artículos 294 y 298;
-VI.- Robo de vehículos, previsto en los artículos 374 fracción V y 375;
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 22 DE MAYO DE 2013)
+VI.- Robo de vehículos previsto en los artículos 374 fracción VI y 375;
 VII.- Trata de personas, previsto en el artículo 228; y
 VIII.- Secuestro previsto en los artículos 302, 302 Bis y 302 Ter.
