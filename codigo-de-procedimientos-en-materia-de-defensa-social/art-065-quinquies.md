@@ -1,3 +1,5 @@
 (ADICIONADO, P.O. 4 DE ENERO DE 2012)
 Artículo 65 Quinquies.- Tratándose de los indicios, huellas o vestigios del hecho delictuoso, el Ministerio Público ordenará la práctica de las pruebas periciales que resulten procedentes. Respecto de los instrumentos, objetos o productos del delito ordenará su aseguramiento, de conformidad con lo dispuesto en el artículo 52 del Código de Defensa Social para el Estado Libre y Soberano de Puebla.
 En caso de no efectuar lo dispuesto en el artículo 65 Quater, el Ministerio Publico lo asentará en la averiguación previa y, en su caso, dará vista a las autoridades que resulten competentes para efectos de las responsabilidades a las que haya lugar.
+(ADICIONADO, P.O. 17 DE JULIO DE 2013)
+Cuando existan indicios de que las prendas a disposición de las casas de empeño son provenientes de la comisión de delitos, el Ministerio Público podrá ordenar respecto de ellas su verificación, peritajes y aseguramiento y sólo en caso de que ello no entorpezca la investigación podrán quedar en calidad de depósito en la casa de empeño.
