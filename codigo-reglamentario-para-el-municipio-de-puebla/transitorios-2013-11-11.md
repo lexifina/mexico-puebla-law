@@ -1,0 +1,3 @@
+P.O. 11 DE NOVIEMBRE DE 2013.
+PRIMERO.- Las presentes reformas y adiciones surtirán sus efectos al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se deroga lo relativo a la Zona de Los Sapos del Considerando XIX del Dictamen presentado por la Comisión de Gobernación y Justicia, por el cual se autorizan como Mercados Temporales los ubicados en el Jardín de Analco, Zona de Los Sapos, Zona del Edificio Carolino y Callejón de Variedades, aprobado por el Honorable Ayuntamiento del Municipio de Puebla, el día ocho de septiembre de dos mil once y publicado en el Periódico Oficial del Estado de Puebla el cuatro de noviembre de dos mil once.
