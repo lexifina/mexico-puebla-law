@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2013)
+ARTÍCULO 324 OCTIES.- El Consejo General establecerá las medidas para salvaguardar la confidencialidad y protección de los datos personales contenidos en el listado de residentes en el extranjero. La violación a esta disposición por parte de los servidores públicos del Instituto o partidos políticos realizada por cualquier forma o medio, generará las responsabilidades a que haya lugar.

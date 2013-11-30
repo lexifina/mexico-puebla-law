@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE NOVIEMBRE DE 2013)
+ARTÍCULO 324 SEXIES.- Los partidos políticos y sus candidatos a Gobernador no podrán realizar campaña electoral en el extranjero; en consecuencia; quedan prohibidas en cualquier tiempo, las actividades, actos y propaganda electoral en el extranjero. Asimismo, la contratación de medios de comunicación para la promoción del proceso electoral, o de algún partido o candidato.
