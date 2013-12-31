@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO FISCAL Y PRESUPUESTARIO PARA EL MUNICIPIO DE PUEBLA
 Código publicado en la Sección Tercera del Periódico Oficial del Estado de Puebla, el viernes 17 de diciembre de 1999.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
