@@ -1,3 +1,4 @@
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 41-F.- Las autoridades fiscales podrán, discrecionalmente, revisar las resoluciones administrativas de carácter individual no favorables a un particular emitidas por sus subordinados jerárquicamente, y en el supuesto de que se demuestre fehacientemente que las mismas se hubieran emitido en contravención a las disposiciones fiscales, podrán, por una sola vez, modificarlas o revocarlas en beneficio del contribuyente, siempre y cuando los contribuyentes no hubieren interpuesto medios de defensa y hubieren transcurrido los plazos para presentarlos, y sin que haya prescrito el crédito fiscal.
-Lo señalado en el párrafo anterior no constituirá instancia y las resoluciones que dicte la Secretaría de Finanzas al respecto, no podrán ser impugnadas por los contribuyentes.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2013)
+Lo señalado en el párrafo anterior no constituirá instancia y las resoluciones que dicte la Secretaría de Finanzas y Administración al respecto, no podrán ser impugnadas por los contribuyentes.

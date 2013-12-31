@@ -1,7 +1,7 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2012)
 ARTICULO 38-B.- Los contribuyentes obligados a pagar mediante declaración, podrán optar por compensar las cantidades que tengan a su favor contra las que estén obligados a pagar por adeudo propio o por retención a terceros, aún cuando se trate de diferente naturaleza. Al efecto, bastará que efectúen la compensación de dichas cantidades actualizadas, desde el mes en que se realizó el pago de lo indebido, hasta aquel en que la compensación se realice.
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 2011)
-Los contribuyentes presentarán el aviso de compensación, dentro de los cinco días siguientes a aquél en el que la misma se haya efectuado, acompañado de la documentación que al efecto se solicite en el formato que para estos efectos autorice y publique en el Periódico Oficial del Estado, la Secretaría de Finanzas.
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2013)
+Los contribuyentes presentarán el aviso de compensación y promoción por escrito ante la autoridad fiscal del Estado, dentro de los cinco días siguientes a aquél en el que la misma se haya efectuado, acompañados de la documentación que se solicite en el formato que para estos efectos autorice y publique en el Periódico Oficial del Estado, la Secretaría de Finanzas y Administración.
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA AL CÓDIGO.
 (ADICIONADO, P.O. 10 DE DICIEMBRE DE 2010)
 Los contribuyentes que hayan ejercido la opción a que se refiere el primer párrafo del presente artículo, que tuvieran saldo a favor de las cantidades pagadas indebidamente, una vez efectuada la compensación, podrán solicitar su devolución en los términos que establece este Código.
