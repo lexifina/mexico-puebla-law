@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 1 DE JULIO DE 1994)
-Artículo 54 BIS.- En todo procedimiento penal, la víctima o el ofendido por algún delito tendrá derecho a:
+Artículo 54 Bis.- En todo procedimiento penal, la víctima o el ofendido por algún delito tendrá derecho a:
 I.- Recibir asesoría jurídica y ser informado, cuando lo solicite, del desarrollo de la averiguación previa o del proceso;
 II.- Coadyuvar con el Ministerio Público;
 III.- Estar presente en todas las diligencias y actos procesales en los que el inculpado tenga ese derecho;
