@@ -1,0 +1,5 @@
+TRANSITORIOS
+PRIMERO.- La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones que se opongan a la presente Ley.
+EL GOBERNADOR, hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Cuatro Veces Heroica Puebla de Zaragoza, a los veintiocho días del mes de noviembre del año dos mil trece.- Diputado Presidente.- GERARDO MEJÍA RAMÍREZ.- Rúbrica.- Diputado Vicepresidente. ENRIQUE NACER HERNÁNDEZ.- Rúbrica.- Diputada Secretaria.- ANA MARÍA JIMÉNEZ ORTIZ.- Rúbrica.- Diputado Secretario.- JORGE LUIS BLANCARTE MORALES.- Rúbrica.
+Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Cuatro Veces Heroica Puebla de Zaragoza, a los veintinueve días del mes de noviembre de dos mil trece.- El Gobernador Constitucional del Estado.- C. RAFAEL MORENO VALLE ROSAS.- Rúbrica.- El Secretario General de Gobierno.- C. LUIS MALDONADO VENEGAS.- Rúbrica.
