@@ -2,7 +2,12 @@
 Artículo 413 Bis.- Al que sin consentimiento de quien deba darlo, causare daño, destrucción o deterioro de bien ajeno por medio de pintar signos, leyendas, dibujos o cualquiera otra manifestación gráfica, se aplicarán las siguientes sanciones:
 I.- Si se realizare en bienes de propiedad privada, se le impondrá de treinta días a tres años de prisión y multa de diez a doscientos cincuenta días de salario; y
 II.- Si se realizare en bienes de dominio público, se le impondrá de cuarenta días a cuatro años de prisión y multa de veinte a trescientos días de salario.
-En los casos previstos en este artículo, la sanción podrá ser sustituida por trabajo a favor de la comunidad en instituciones públicas, en actividades relacionadas con la restauración, preservación y/o mejoramiento de los elementos urbanos o de la protección del patrimonio histórico, artístico, arquitectónico y cultural de los centros de población.
-La institución favorecida con la prestación del trabajo a favor de la comunidad, deberá rendir mensualmente a la autoridad correspondiente, informe de las actividades realizadas por el sentenciado, debiendo comunicar sus ausencias o faltas disciplinarias.
-Si las ausencias del sentenciado a las jornadas de trabajo a favor de la comunidad son injustificadas durante tres días en el cumplimiento de la pena, se le notificará al Juez quien ordenará, en su caso, que la pena sustituida se ejecute, computándose los días de trabajo que hayan sido cumplidos en favor de la comunidad.
-En la reparación del daño, el juez velará por la restauración, de ser posible, de los bienes afectados.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2013)
+En los casos previstos en este artículo, el restablecimiento indemnatos obtenido a través del procedimiento de mediación de los delitos de oficio tiene como consecuencia la extinción de la acción penal o la terminación de la prosecución procesal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2013)
+Las autoridades procurarán que la mediación concluya en un restablecimiento indemnatos.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2013)
+La sanción podrá ser sustituida por trabajo a favor de la comunidad en instituciones públicas, en actividades relacionadas con la restauración, preservación y/o mejoramiento de los elementos urbanos o de la protección del patrimonio histórico, artístico, arquitectónico y cultural de los centros de población.
