@@ -7,4 +7,4 @@ Comete el delito de violencia familiar el cónyuge; la cónyuge; concubino; conc
 A quien cometa el delito de violencia familiar, se le impondrán de uno a seis años de prisión y multa de cincuenta a ciento cincuenta días de salario; y estará sujeto a tratamiento integral para su rehabilitación por un tiempo que no rebase la sanción privativa de la libertad que se haya impuesto, así como la pérdida de la patria potestad, de los derechos hereditarios y de alimentos.
 (ADICIONADO, P.O. 11 DE OCTUBRE DE 2012)
 La penalidad descrita en el tercer párrafo se aumentará hasta en una mitad, en caso de sujetos pasivos mayores de 70 años.
-La Autoridad Judicial y el Ministerio Público, en su caso, dictará las medidas necesarias para el tratamiento psicoterapéutico del agresor y la víctima, ordenando cuando sea procedente las medidas apropiadas para salvaguardar la integridad de sus familiares.
+La Autoridad Judicial y el Ministerio Público, en su caso, dictará las medidas necesarias para el tratamiento psicoterapéutico del agresor y de la víctima, ordenando cuando sea procedente las medidas apropiadas para salvaguardar la integridad de sus familiares.
