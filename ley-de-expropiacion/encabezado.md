@@ -1,4 +1,4 @@
-LEY DE EXPROPIACION PARA EL ESTADO DE PUEBLA
+LEY DE EXPROPIACIÓN PARA EL ESTADO DE PUEBLA
 Ley publicada en la Sexta Sección del Periódico Oficial del Estado de Puebla, el miércoles 3 de diciembre de 2008.
 LICENCIADO MARIO P. MARÍN TORRES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a sus habitantes sabed:
 Que por la Secretaría del H. Congreso, se me ha remitido el siguiente:
