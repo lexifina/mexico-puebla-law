@@ -1,4 +1,4 @@
-LEY DE COORDINACION HACENDARIA DEL ESTADO DE PUEBLA Y SUS MUNICIPIOS
+LEY DE COORDINACIÓN HACENDARIA DEL ESTADO DE PUEBLA Y SUS MUNICIPIOS
 Ley publicada en la Sección Cuarta del Periódico Oficial del Estado de Puebla, el viernes 20 de marzo de 2009.
 LICENCIADO MARIO P. MARÍN TORRES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a sus habitantes sabed:
 Que por la Secretaría del H. Congreso, se me ha remitido el siguiente:
