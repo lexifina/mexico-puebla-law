@@ -1,5 +1,5 @@
-(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 14 DE DICIEMBRE DE 2009)
-DE LA COMERCIALIZACIÓN DE PRODUCTOS CÁRNICOS Y/O SUBPRODUCTOS Y AVES MUERTAS EN LOS MERCADOS TEMPORALES
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 14 DE DICIEMBRE DE 2009)
+DE LA COMERCIALIZACIÓN DE PRODUCTOS CÁRNICOS Y/O SUBPRODUCTOS Y AVES MUERTAS EN LOS MERCADOS MUNICIPALES Y/O DE APOYO
 (ADICIONADO, P.O. 14 DE DICIEMBRE DE 2009)
 Artículo 639 Sexdecies.- Los requisitos sanitarios para el caso de los establecimientos en los mercados temporales autorizados que expendan productos cárnicos y/o subproductos, así como aves muertas, deberán cumplir como mínimo con lo siguiente:
 I. Las carnes permanecerán siempre en lugar fresco, conforme a lo establecido en la Norma Oficial NOM-194-SSA1-2004;

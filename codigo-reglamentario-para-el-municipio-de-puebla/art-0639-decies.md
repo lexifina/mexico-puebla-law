@@ -1,5 +1,5 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 14 DE DICIEMBRE DE 2009)
-DE LA COMERCIALIZACIÓN DE PRODUCTOS CÁRNICOS Y/O SUBPRODUCTOS Y AVES MUERTAS EN LOS MERCADOS MUNICIPALES Y/O DE APOYO
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 14 DE DICIEMBRE DE 2009)
+DE LA COMERCIALIZACIÓN DE PRODUCTOS CÁRNICOS Y/O SUBPRODUCTOS Y AVES MUERTAS EN LOS MERCADOS TEMPORALES
 (ADICIONADO, P.O. 14 DE DICIEMBRE DE 2009)
 Artículo 639 Decies.- Para la obtención de licencias de funcionamiento para la comercialización de productos cárnicos y/o subproductos dentro de los mercados municipales y/o de apoyo, los locatarios además de cubrir los requisitos señalados en los artículos 1418 y 1419 de este Código, deberá acreditar que está en trámite el aviso de funcionamiento emitido por los Servicios de Salud del Estado de Puebla.
 Una vez que el interesado obtenga el aviso de funcionamiento correspondiente, observará lo establecido en el artículo 633 Sexies del presente Capítulo ante la Dirección de Abasto y Comercio Interior o el área asignada en su caso.
