@@ -1,3 +1,4 @@
+N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EN EL P.O. DEL 20 DE MAYO DE 2014, SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.
 CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
 Código publicado en la Segunda Sección del Periódico Oficial del Estado de Puebla, el martes 23 de diciembre de 1986.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
