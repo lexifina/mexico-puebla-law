@@ -13,7 +13,7 @@ V. Solo se permitirán este tipo de anuncios en lugares en donde no se interfier
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 2008)
 VI. Obtener la Licencia correspondiente de la Agencia;
 (ADICIONADA, P.O. 19 DE DICIEMBRE DE 2007)
-VII. Queda estrictamente prohibido instalar en el Municipio de Puebla, anuncios cuyas dimensiones excedan de las medidas establecidas en la fracción I de este artículo; y (sic)
+VII. Queda estrictamente prohibido instalar en el Municipio de Puebla, anuncios cuyas dimensiones excedan de las medidas establecidas en la fracción I de este artículo; y
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 2008)
 VIII. Los anuncios espectaculares deberán situarse a una distancia mínima de 5.00 metros de los cables de alta tensión; y
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)

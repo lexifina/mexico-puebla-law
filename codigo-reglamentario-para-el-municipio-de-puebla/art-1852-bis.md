@@ -1,0 +1,4 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 26 DE AGOSTO DE 2014)
+Artículo 1852 Bis.- Queda prohibida la celebración y realización de espectáculos circenses en los cuales se utilicen animales. Se exceptúan zoológicos, acuarios y centros de conservación con fines de educación ambiental, conservación e investigación, que otorguen trato digno y respetuoso a los animales, y que garanticen las condiciones y los cuidados adecuados, y cumplan con la legislación aplicable.
+La Autoridad Municipal competente deberá iniciar el procedimiento administrativo correspondiente cuando en espectáculos circenses se utilicen animales, informando a la Delegación Estatal de la Procuraduría Federal de Protección al Ambiente para los efectos correspondientes.
