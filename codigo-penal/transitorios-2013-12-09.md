@@ -1,0 +1,7 @@
+P.O. 9 DE DICIEMBRE DE 2013.
+DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE EXPIDE LA LEY PARA LA VENTA Y SUMINISTRO DE BEBIDAS ALCOHÓLICAS DEL ESTADO DE PUEBLA; ASIMISMO, REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY ESTATAL DE SALUD, DE LA LEY ORGÁNICA MUNICIPAL Y DEL CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA.
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Se derogan todas las disposiciones legales y reglamentarias que se opongan al presente Decreto.
+TERCERO.- Los municipios del Estado contarán con un plazo de sesenta días naturales, a partir de la entrada en vigor de la presente Ley, para adecuar sus reglamentos municipales a la Ley para la Venta y Suministro de Bebidas Alcohólicas del Estado de Puebla.
+CUARTO.- Las personas que realicen actividades de venta y suministro de bebidas alcohólicas con los permisos municipales vigentes, cuentan con un plazo de cuarenta y cinco días hábiles para obtener de la autoridad competente, la licencia o el permiso correspondiente en términos de esta Ley.
+QUINTO.- El Ejecutivo Estatal contará con un plazo de ciento ochenta días, a partir de la entrada en vigor del presente Decreto, para adecuar las disposiciones reglamentarias correspondientes, en tanto no se realicen, emitirá, por medio de la autoridad administrativa competente, las disposiciones normativas y administrativas para atender a través de la Secretaría de Salud, las solicitudes de cédulas sanitarias para la venta y suministro de bebidas alcohólicas.

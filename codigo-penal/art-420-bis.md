@@ -1,0 +1,6 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2014)
+Artículo 420 Bis.- Comete el delito de intimidación:
+I.- El servidor público que por sí, o por interpósita persona, utilizando la violencia física o moral, inhiba o intimide a cualquier persona para evitar que ésta o un tercero denuncie, formule querella o aporte información relativa a la presunta comisión de una conducta sancionada penalmente y clasificada como delito grave o de prisión preventiva oficiosa o por las leyes que establecen las responsabilidades de los servidores públicos y sancionan su incumplimiento, y
+II.- El servidor público que con motivo de la querella, denuncia o información a que hace referencia la facción anterior realice una conducta ilícita u omita una lícita debida que lesione los intereses de las personas que las presenten o aporten, o de algún tercero con quien dichas personas guarden algún vínculo familiar, de negocios o afectivo.
+Al que cometa el delito de intimidación se le impondrán de uno a siete años de prisión, multa por un monto de veinte a doscientos días de salario mínimo diario vigente en el momento de cometerse el delito, destitución e inhabilitación de dos a siete años para desempeñar otro empleo, cargo o comisión públicos.

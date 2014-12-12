@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 4 DE ENERO DE 2012)
-Artículo 82 Ter.- Cuando el sujeto activo confiese su participación en la comisión de delito grave ante el Ministerio Público y la ratifique ante el Juez en la declaración preparatoria, se disminuirá la pena en una tercera parte, según el delito que se trate, excepto cuando estén relacionados con delincuencia organizada, secuestro o trata de personas.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 82 Ter.- (DEROGADO, P.O. 27 DE NOVIEMBRE DE 2014)

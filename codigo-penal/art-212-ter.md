@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 4 DE ENERO DE 2012)
-Artículo 212 Ter.- Si el que recibió en venta, prenda o bajo cualquier otro concepto el instrumento, objeto o producto de un delito, después de su ejecución y sin haber participado en él, no adoptó las precauciones indispensables para cerciorarse de su procedencia o para asegurarse de que la persona de quien la recibió tenía derecho para disponer de ella, se le impondrán las penas previstas en el artículo 83.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 27 DE NOVIEMBRE DE 2014)
+Artículo 212 Ter.- Si el que recibió en venta, prenda o bajo cualquier otro concepto el instrumento, objeto o producto de un delito, después de su ejecución y sin haber participado en él, lo adquiera, existiendo y estando a su alcance las medidas indispensables para cerciorarse de su procedencia o para asegurarse de que la persona de quien la recibió tenía derecho para disponer de ella, sin que las haya agotado, se le impondrán las penas previstas en el artículo 83.
