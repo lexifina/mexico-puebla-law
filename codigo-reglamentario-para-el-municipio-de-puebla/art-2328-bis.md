@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE FEBRERO DE 2015)
+Artículo 2328 Bis.- El Premio al Mérito Emprendedor se otorga a las personas físicas o morales, de nacionalidad mexicana, que son referentes nacionales por sus ideas y emprendimientos considerados valiosos, relevantes e innovadores; así como a las instituciones ejemplares en el impulso del ecosistema emprendedor, que respaldan la actividad emprendedora e innovadora, para la generación de empleo, el impulso de la productividad y en suma, la competitividad del país.
