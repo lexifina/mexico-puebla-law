@@ -27,7 +27,7 @@ d) El método de elección a utilizar;
 e) El monto del financiamiento que se destinará a la organización del proceso; y
 f) El monto autorizado para gastos de precampaña.
 IV.- Los partidos políticos dispondrán lo necesario a fin de que los aspirantes a candidatos, sean reconocidos como tales, extendiéndoles la constancia de registro respectiva; se exceptúan los municipios en donde el candidato de los partidos políticos se determine mediante el método de usos y costumbres;
-V.- La propaganda de las precampañas se sujetará a las disposiciones contenidas en el presente Código relativas a la propaganda electoral así como a los lineamientos que expida el Consejo Cultural;
+V.- La propaganda de las precampañas se sujetará a las disposiciones contenidas en el presente Código relativas a la propaganda electoral así como a los lineamientos que expida el Consejo General;
 VI.- Una vez terminadas las precampañas que realicen los partidos políticos, en la fase de precandidaturas, la propaganda que se utilizó deberá ser retirada en términos de la fracción XIII del artículo 54 por los aspirantes a candidato o por el partido político al que pertenece o bajo el que hizo precampaña.
 En caso de no hacerlo, se pedirá a las autoridades municipales procedan a realizar el retiro, aplicando el costo de dichos trabajos con cargo a las prerrogativas del partido político infractor.
 Los partidos políticos tomarán las medidas necesarias para que sus precandidatos cumplan con esta disposición.
