@@ -1,4 +1,5 @@
 CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
+N. DE E. DE CONFORMIDAD CON EL TRANSITORIO PRIMERO DEL DECRETO DE REFORMAS PUBLICADO EN EL P.O. DE 9 DE MARZO DE 2015, ENTRA EN VIGOR A LOS QUINCE DÍAS NATURALES SIGUIENTES DE SU PUBLICACIÓN.
 Código publicado en la Segunda Sección del Periódico Oficial del Estado de Puebla, el martes 23 de diciembre de 1986.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
 GUILLERMO JIMENEZ MORALES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a los habitantes del mismo sabed:
