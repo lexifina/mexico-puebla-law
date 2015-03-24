@@ -1,0 +1,5 @@
+P.O. 13 DE MARZO DE 2015.
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. Los Ayuntamientos de los Municipios de la Entidad en el ámbito de sus respectivas competencias, deberán prever y realizar las acciones conducentes para fomentar las expresiones o manifestaciones artísticas o culturales de los habitantes de sus jurisdicciones.
+CUARTO. El presente Decreto en cuanto a la materia procedimental penal estará vigente, hasta en tanto, surta efectos a plenitud la entrada en vigor del Código Nacional de Procedimientos Penales en el territorio del Estado, conforme a lo que establecen el artículo 10 Bis de la Ley Orgánica del Poder Judicial del Estado de Puebla, y el artículo Segundo Transitorio de la Ley Orgánica del Poder Judicial del Estado de Puebla, Decretos publicados en el Periódico Oficial del Estado de fecha diecisiete de junio de dos mil once y trece de septiembre de dos mil trece, respectivamente.
