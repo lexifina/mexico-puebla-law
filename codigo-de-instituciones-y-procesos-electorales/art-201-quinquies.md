@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 31 DE MARZO DE 2014)
-ARTÍCULO 201 QUINQUIES.- El candidato independiente que obtenga el triunfo en la elección correspondiente podrá recuperar del Instituto, hasta un 50% de gastos máximos de campaña establecidos para la respectiva elección, previa comprobación de dicho gasto.
-En caso de que un candidato independiente que resulte triunfador hubiere excedido en sus gastos máximos de campaña correspondiente, no tendrá derecho a la recuperación a que se refiere el párrafo anterior. Lo anterior sin perjuicio de las sanciones a que sea acreedor el candidato, de conformidad con lo establecido en este Código.

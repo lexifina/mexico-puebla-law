@@ -4,7 +4,8 @@ Se integrará conforme a lo dispuesto en la Ley de Transparencia y Acceso a la I
 A. El Titular de la Unidad deberá acreditar:
 I.- Ser ciudadano mexicano en pleno ejercicio de sus derechos civiles y políticos;
 II.- Ser originario o residente en el Estado cuando menos con cinco años anteriores a la fecha de su designación;
-III.- Estar inscrito en el Registro Federal de Electores y contar con credencial para votar con fotografía;
+(REFORMADA, P.O. 22 DE AGOSTO DE 2015)
+III.- Estar inscrito en el Registro Federal de Electores y contar con credencial para votar;
 IV.- Tener más de veinticinco años de edad al día de su designación;
 V.- Contar con título profesional;
 VI.- Contar con los conocimientos y experiencia suficientes que le permitan el adecuado desempeño de sus funciones;

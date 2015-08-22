@@ -1,11 +1,18 @@
 (REFORMADA SU DENOMINACIÓN, P.O. 20 DE FEBRERO DE 2012)
 CAPÍTULO I
 DE LAS CANDIDATURAS COMUNES
-(ADICIONADO, P.O. 20 DE FEBRERO DE 2012)
-ARTÍCULO 58 BIS.- Los partidos políticos, sin mediar coalición, podrán apoyar candidatos comunes para las elecciones de Gobernador, Diputados de Mayoría Relativa, así como para los miembros de Ayuntamientos.
+(REFORMADO, P.O. 22 DE AGOSTO DE 2015)
+ARTÍCULO 58 BIS.- Los partidos políticos, sin mediar coalición, tendrán derecho a postular candidaturas comunes para la elección de Gobernador, Diputados de Mayoría y planillas de miembros de ayuntamientos.
 Los partidos políticos que apoyen en común a un candidato, deberán contar con el consentimiento del órgano directivo indicado en los Estatutos para aprobar dichas candidaturas, o en su defecto, para aprobar coaliciones o fusiones. Asimismo, se requerirá del consentimiento del candidato, y de la aceptación que los partidos postulantes, a través de sus órganos directivos competentes señalados, manifiesten respecto de la participación de los otros partidos políticos interesados en apoyar la candidatura común.
-El Instituto a través de la Dirección de Prerrogativas, Partidos Políticos y Medios de Comunicación, registrará los consentimientos correspondientes, los cuales se informarán al Consejo General para efectos de conocimiento público de los partidos que apoyan a determinada candidatura común, al momento del registro del candidato que corresponda.
+Los partidos políticos que acuerden postular en común candidatos por el principio de mayoría relativa, presentarán en lo individual lista de candidatos a Diputados por el Principio de Representación Proporcional para su registro, en los términos de este Código.
+Para el caso de postular candidatos para la elección de diputados por el principio de mayoría relativa, se deberá indicar el Grupo Legislativo al que se integrarán en caso de resultar ganadores.
+Con la finalidad de garantizar el derecho de autodeterminación en la postulación de candidatos que les asiste a los partidos políticos, podrán postular candidatos comunes de manera total o parcial, sin que en este último caso exista algún mínimo o límite respecto del número de candidatos a postular o bien respecto del tipo de elección de que se trate.
+La Dirección de Prerrogativas y Partidos Políticos, registrará los consentimientos correspondientes para efectos de conocimiento público (sic) fijará en la sede del Instituto la relación de partidos que apoyan a determinada candidatura común, una vez aprobada por el Consejo General.
 El apoyo a un candidato común se formalizará únicamente durante el periodo de registro de candidatos. En dicho periodo, tanto los partidos como los candidatos deberán entregar al Instituto el documento correspondiente en el que consten sus consentimientos respectivos.
 Los partidos que apoyen candidatos comunes conservarán cada uno su monto de financiamiento público, su tiempo que corresponda de acceso a radio y televisión, así como su representación en los órganos del Instituto y en las mesas directivas de casilla.
 En las boletas respectivas, cada partido político conservará el espacio correspondiente a su emblema, con el nombre del candidato común al que se apoye.
-En caso de partidos políticos que postulen candidaturas comunes y no alcancen el dos por ciento de la votación, se aplicará lo previsto en el artículo 318 de este Código.
+En caso de partidos políticos que postulen candidaturas comunes y no alcancen el tres por ciento de la votación, se aplicará lo previsto en el artículo 318 de este Código.
+Los partidos políticos que postulen candidatos comunes, no podrán postular en las demarcaciones donde así lo hagan candidatos propios ni de otros partidos políticos para la elección que acordaron la candidatura común.
+En el escrutinio y cómputo de casilla para el caso de las candidaturas comunes, se contarán los votos a favor de candidatos, así como los votos a favor de los partidos políticos que las postulen, en los términos previstos en este Código.
+Los votos en los que se hubiesen marcado más de una opción de los partidos que apoyen la candidatura común, serán considerados válidos para el candidato postulado y contarán como un solo voto.
+En todo caso, el escrutinio y cómputo de los votos que le corresponderán a los partidos que postulen candidato en común se llevará a cabo conforme al procedimiento previsto en el artículo 292 Bis de este Código.

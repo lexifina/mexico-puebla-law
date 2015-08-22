@@ -36,7 +36,7 @@ Comprendiendo los municipios siguientes: Tepexi de Rodríguez, Atexcal, Atoyatem
 DISTRITO 14 Cabecera: Tehuacán.
 Comprendiendo los municipios siguientes: Tehuacán, Tepanco de López, Chapulco, Santiago Miahuatlán y Nicolás Bravo.
 DISTRITO 15 Cabecera: Ajalpan.
-Comprendiendo los municipios siguientes: Ajalpan, Zapotitlán, Caltepec, San Gabriel Chilac, San José Miahuatlán, Altepexi, Zinacatepec, Coxcatlán, San Antonio Cañada, Vicente Guerrero, Zoquitlán, Coyomeapan, San Sebastián T1acotepec y Eloxochitlán.
+Comprendiendo los municipios siguientes: Ajalpan, Zapotitlán, Caltepec, San Gabriel Chilac, San José Miahuatlán, Altepexi, Zinacatepec, Coxcatlán, San Antonio Cañada, Vicente Guerrero, Zoquitlán, Coyomeapan, San Sebastián Tlacotepec y Eloxochitlán.
 DISTRITO 16 Cabecera: Tepeaca.
 Comprendiendo los municipios siguientes: Tepeaca, Acajete, Amozoc, Cuautinchán, Mixtla, Santo Tomás Hueyotlipan, Tecali de Herrera, Tepatlaxco de Hidalgo y Tzicatlacoyan.
 DISTRITO 17 Cabecera: Tecamachalco.
