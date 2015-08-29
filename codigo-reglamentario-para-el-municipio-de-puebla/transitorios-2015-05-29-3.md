@@ -1,0 +1,9 @@
+P.O. 29 DE MAYO DE 2015.
+ACUERDO POR EL QUE SE DEROGA EL TÍTULO DENOMINADO "DE LAS NOTIFICACIONES POR MEDIOS ELECTRÓNICOS" CON LOS ARTÍCULOS 107 BIS; 107 TER; 107 QUÁTER; 107 QUINQUIES; 107 SEXIES; 107 SEPTIES; 107 OCTIES Y 107 NONIES DEL CAPÍTULO 5 DENOMINADO "DE LA INTEGRACIÓN Y FUNCIONAMIENTO DEL CABILDO"; Y LA ADICIÓN DEL CAPÍTULO 37 DENOMINADO "DEL GOBIERNO DIGITAL" CON LOS ARTÍCULOS 2343 AL 2376 AL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA.
+PRIMERO. El presente Dictamen entrará en vigor a partir del día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan las disposiciones que se opongan al presente Dictamen.
+TERCERO. La Contraloría Municipal, deberá elaborar los Lineamientos del Padrón de Usuarios Acreditados del Municipio de Puebla, en un plazo máximo de cuarenta días naturales, contados a partir de la fecha de publicación de este Dictamen en el Periódico Oficial del Estado.
+CUARTO. El Padrón de Usuarios Acreditados del Municipio de Puebla deberá operar en los términos del presente Capítulo, en un plazo no mayor de noventa días naturales, contados a partir de la fecha de publicación del presente Dictamen en el Periódico Oficial del Estado.
+QUINTO. A partir del día siguiente de la publicación del presente instrumento, el Ayuntamiento determinará los trámites y servicios que podrán ser desahogados de manera electrónica, sin perjuicio de aquéllos que ya se realizaban a través de esa vía.
+SEXTO. Las erogaciones que deriven de la aplicación de esta adición, estarán sujetas a la suficiencia presupuestal correspondiente.
+SÉPTIMO. Los sistemas que no se encuentren vinculados al Padrón de Usuarios Acreditados del Municipio de Puebla deberán solicitar a la Secretaría de Innovación Digital y Comunicaciones, a través de la Dirección de Sistemas, realice la vinculación de los trámites con dicho Padrón.

@@ -1,7 +1,1 @@
-(ADICIONADO, P.O. 12 DE FEBRERO DE 2007)
-Artículo 107 Quinquies.- Para efectos del presente apartado se entiende por:
-I.- Acuse de Recibo Electrónico: La constancia escrita y/o electrónica, que emite una autoridad, dependencia u organismo para acreditar la fecha y hora de recepción de una notificación o resolución, a través de medios de comunicación electrónica.
-II.- Emisor: Cualquier autoridad, dependencia u organismo, que emita a través de un medio de comunicación electrónica un comunicado, notificación o resolución, a otra autoridad, dependencia u organismo que tenga la capacidad tecnológica para la recepción de los mismos.
-III.- Receptor: La autoridad, dependencia u organismo que recibe a través de un medio de comunicación electrónica un comunicado, notificación o resolución, de otra autoridad, dependencia u organismo que tenga la capacidad tecnológica para la emisión de los mismos.
-IV.- Medios Electrónicos: Los dispositivos tecnológicos para transmitir o almacenar datos e información, a través de computadoras, líneas telefónicas, microondas o de cualquier otro tipo de tecnología.
-V.- Programas Informáticos: Los medios de captura, transmisión y recepción de información que desarrollen, instalen y apliquen las autoridades, dependencias u organismos, para estar en aptitud de emitir y recibir de la manera más eficaz, segura, transparente, rápida y que genere el menor costo, los comunicados, notificaciones o resoluciones necesarios para la marcha regular de los negocios.
+Artículo 107 Quinquies.- (DEROGADO, P.O. 29 DE MAYO DE 2015)
