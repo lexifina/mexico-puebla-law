@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 27 DE MARZO DE 2006)
-Artículo 259 Bis.- Para los efectos de la fracción V del artículo anterior se entiende por CINEMÓMETRO una cámara móvil para la detección de la velocidad.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL ACUERDO QUE MODIFICA EL ORDENAMIENTO.
+Artículo 259 Bis.- (DEROGADO, P.O. 2 DE MARZO DE 2015)

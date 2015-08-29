@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 29 DE AGOSTO DE 2008)
-Artículo 259 Bis 7.- Con independencia de lo señalado en los artículos 259 Bis, 259 Bis 1,259 Bis 2, 259 Bis 3, 259 Bis 4, 259 Bis 5 y 259 Bis 6, la Dirección de Tránsito Municipal a través de su personal, mantiene las facultades discrecionales en términos del presente Capítulo, a fin de cerciorarse de que un vehículo ha excedido el límite de velocidad en aquellas vialidades en donde no se encuentre un CINEMÓMETRO, conminando a los conductores a fin de que no incurran nuevamente en una falta por exceso de velocidad y realizando las acciones que en términos del presente Capítulo sean procedentes.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL ACUERDO QUE MODIFICA EL ORDENAMIENTO.
+Artículo 259 Bis 7.- (DEROGADO, P.O. 2 DE MARZO DE 2015)

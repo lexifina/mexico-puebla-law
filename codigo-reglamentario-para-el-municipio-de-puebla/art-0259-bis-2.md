@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 29 DE AGOSTO DE 2008)
-Artículo 259 Bis 2.- La Dirección de Tránsito Municipal, se encuentra facultada para colocar CINEMÓMETROS, en el horario que para tal efecto designe, con base en la intensidad vehicular respectiva.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL ACUERDO QUE MODIFICA EL ORDENAMIENTO.
+Artículo 259 Bis 2.- (DEROGADO, P.O. 2 DE MARZO DE 2015)

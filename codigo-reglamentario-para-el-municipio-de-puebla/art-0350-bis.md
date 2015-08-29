@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
-Artículo 350 Bis.- Ninguna persona podrá conducir vehículos por la vía pública, superior al grado de intoxicación alcohólica o psicotrópica que establece la Norma Oficial Mexicana que señala los diferentes periodos de intoxicación etílica. Los operadores de vehículos destinados al servicio de transporte de pasajeros, de carga, sustancias peligrosas o tóxicas, no deben presentar ninguna cantidad de alcoholo bajo los efectos de narcóticos.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL ACUERDO QUE MODIFICA EL ORDENAMIENTO.
+Artículo 350 Bis.- (DEROGADO, P.O. 2 DE MARZO DE 2015)

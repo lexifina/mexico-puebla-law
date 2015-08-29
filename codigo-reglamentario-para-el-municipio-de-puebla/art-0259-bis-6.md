@@ -1,3 +1,2 @@
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 2008)
-Artículo 259 Bis 6.- Si en un mismo evento concurren dos o más infracciones al presente Capítulo, y una de ellas se derive de la aplicación de un CINEMÓMETRO, el agente, se encuentra facultado para dar alcance al vehículo automotor correspondiente, detenerlo, hacerle ver que ha sido detectado por el CINEMÓMETRO por exceder el límite de velocidad y que por ende llegará a su domicilio la infracción respectiva.
-Respecto a la infracción concurrente, el agente se encuentra facultado para proceder en términos del presente Capítulo determinando la infracción que en su caso hubiese cometido el conductor en términos del artículo 304 y demás relativos del presente ordenamiento legal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL ACUERDO QUE MODIFICA EL ORDENAMIENTO.
+Artículo 259 Bis 6.- (DEROGADO, P.O. 2 DE MARZO DE 2015)

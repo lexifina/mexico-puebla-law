@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
-Artículo 350 Ter.- Los agentes pueden detener la marcha de un vehículo cuando los conductores u operadores de vehículos presenten señas aparentes de circular bajo el influjo de cualquiera de estas sustancias.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL ACUERDO QUE MODIFICA EL ORDENAMIENTO.
+Artículo 350 Ter.- (DEROGADO, P.O. 2 DE MARZO DE 2015)
