@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1706 Bis.- El servicio de consulta, será completamente gratuito y en las instalaciones del Archivo General Municipal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1706 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

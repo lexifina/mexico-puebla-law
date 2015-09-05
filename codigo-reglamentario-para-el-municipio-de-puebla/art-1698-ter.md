@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1698 Ter.- Se consideran investigadores permanentes, a las personas con capacidad académica para desarrollar dicha labor y que hacen de ella su ocupación ordinaria en los archivos y que obtienen de la Dirección del Archivo General, la autorización de consultar por un tiempo mayor a tres meses.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1698 Ter.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

@@ -1,4 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1703 Sexies.- Para una correcta organización y coordinación de las actividades de dicho Comité la Jefatura de Archivo de Supervisión y Concentración deberá:
-a) Mantener actualizado el padrón de sus miembros; y
-b) Programar curso de capacitación de sus miembros y personal encargado de archivos administrativos y/o Secretarias de las Dependencias del Honorable Ayuntamiento y Organismos Descentralizados.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1703 Sexies.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

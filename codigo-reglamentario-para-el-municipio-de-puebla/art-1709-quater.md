@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1709 Quáter.- El Archivo General Municipal contará con una publicación periódica denominada "Identidad Poblana", órgano de difusión del Archivo General Municipal. Por este medio la institución promoverá el conocimiento de la historia de Puebla y las actividades propias del Archivo.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1709 Quáter.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

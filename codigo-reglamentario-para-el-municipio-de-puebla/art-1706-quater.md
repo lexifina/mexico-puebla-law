@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1706 Quáter.- El uso del equipo de cómputo que forma parte del mobiliario del Archivo General Municipal será únicamente par consulta del acervo. Los usuarios no podrán hacer transferencia y procesamiento del acervo mediante el uso de medios electrónicos, esta función se reserva al Archivo General Municipal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1706 Quáter.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

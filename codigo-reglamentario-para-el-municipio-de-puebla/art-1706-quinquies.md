@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1706 Quinquies.- El Director del Archivo General Municipal podrá cerrar temporalmente el Archivo por razones de aseo y fumigación, inventario y acondicionamiento.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1706 Quinquies.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

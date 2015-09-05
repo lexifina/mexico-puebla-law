@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1698 Bis.- Se consideran usuarios externos, los que no tengan la categoría de servidores públicos dentro del Honorable Ayuntamiento, así como los Organismos Descentralizados y Juntas Auxiliares.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1698 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1699 Bis.- Cualquier documento puede ser consultado cuando se requiera por mandamiento de autoridad competente.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1699 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

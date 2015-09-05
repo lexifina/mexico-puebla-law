@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1705 Bis.- Los documentos que resguarda el archivo de concentración podrán ser consultados por usuarios externos, únicamente cuando sea autorizado por la unidad orgánica generadora.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1705 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1701 Bis.- Se pude fotocopiar o reproducir documentos que hayan sido autorizados, en cualquier medio idóneo que no signifique daño alguno, siempre y cuando su manejo esté supervisado por el personal del Archivo General Municipal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1701 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

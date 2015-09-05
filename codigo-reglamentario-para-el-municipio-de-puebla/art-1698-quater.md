@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1698 Quáter.- Se consideran investigadores temporales los que obtengan de la Dirección del Archivo General el permiso para desarrollar su investigación por un tiempo menor a tres meses.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1698 Quáter.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

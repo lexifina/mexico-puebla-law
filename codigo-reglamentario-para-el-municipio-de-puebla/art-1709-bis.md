@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1709 Bis.- La publicación de documentos resguardados en el archivo se realizará con la necesaria autorización del titular del Archivo General Municipal. Quien reproduce deberá citar la procedencia del documento y dar los créditos al Archivo General Municipal.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1709 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

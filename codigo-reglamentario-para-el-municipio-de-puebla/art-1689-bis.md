@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1689 Bis.- El Archivo General Municipal dictará los lineamientos de administración documental, mismos que tendrán aplicación obligatoria en todas las dependencias y organismos descentralizados, así como de sus Juntas Auxiliares del Honorable Ayuntamiento; los cuales serán formalmente expresados a través de los "Lineamientos Generales para la Administración Documental y Transferencia de Archivos Administrativos al Archivo General Municipal de Puebla".

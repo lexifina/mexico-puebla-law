@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1703 Quinquies.- Los Secretarios, Directores y Jefes de Departamento de conformidad con este Capítulo deberán apoyar a su personal perteneciente al Comité Técnico de Archivos Administrativos y Semiactivos, en difundir y acatar las disposiciones de los "Lineamientos Generales para la Administración Documental y Transferencia de Archivos Administrativos al Archivo General Municipal de Puebla".
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1703 Quinquies.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

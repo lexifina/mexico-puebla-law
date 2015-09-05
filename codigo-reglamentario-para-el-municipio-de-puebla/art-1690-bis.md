@@ -1,5 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1690 Bis.- Se consideran documentos públicos aquéllos que fueron y son generados en acciones públicas, por las diferentes Dependencias y Entidades que conforman la Administración Pública y Municipal clasificados en:
-a) Documentación activa.- Aquélla necesaria para el ejercicio de las atribuciones de las unidades administrativas y de uso frecuente, que se conserva en el archivo de trámite;
-b) Documentación semiactiva.- Aquélla de uso esporádico que debe conservarse por razones administrativas, legales, fiscales o contables en el archivo de concentración; y
-c) Documentación histórica.- Aquélla que contiene evidencia y testimonio de las acciones de la dependencia, por lo que debe conservarse permanentemente.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1690 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

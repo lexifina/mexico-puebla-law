@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1694 Bis.- El Archivo General del H. Ayuntamiento de Puebla, deberá regirse por la normatividad Estatal y Nacional que sobre el tema exista.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1694 Bis.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)

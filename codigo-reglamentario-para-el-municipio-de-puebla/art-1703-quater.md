@@ -1,13 +1,2 @@
-(ADICIONADO, P.O. 15 DE FEBRERO DE 2006)
-Artículo 1703 Quáter.- Las funciones del Comité Técnico de los Archivos Administrativos y Semiactivos son:
-I.- Vigilar que se cumplan los "Lineamientos Generales para la Administración Documental y Transferencia de Archivos Administrativos al Archivo General Municipal de Puebla";
-II.- Acordar y orientar el personal administrativo del Honorable Ayuntamiento sobre el manejo que debe darse a los documentos, de acuerdo como lo establece el Archivo General Municipal, a través de los "Lineamientos Generales para la Administración Documental y Transferencia de Archivos Administrativos al Archivo General Municipal de Puebla";
-III.- Promover y procurar en las unidades administrativas que conforman cada Dependencia y Organismo Descentralizado del Honorable Ayuntamiento, que los documentos se organicen por asunto, con la finalidad de integrar expedientes concluidos, para garantizar su fácil localización y consulta;
-IV.- Verificar que se cumpla el seguimiento y control de los documentos sujetos a trámite hasta su integración final al Archivo General garantizando que todas las piezas gestionadas sean conservadas de manera institucional;
-V.- Asesorar en la integración y transferencia de la documentación cuyo trámite haya concluido en las Dependencias y Organismos Descentralizados que conforman el Honorable Ayuntamiento;
-VI.- Apoyar en la capacitación y actualización de las Secretarias y/o responsables de archivos que asigne cada una de las dependencias del Honorable Ayuntamiento para la correcta administración documental;
-VII.- Las aclaraciones, recomendaciones y demás que en materia de administración de documentos o transferencia se dirigirán con el Jefe del Departamento de Archivo de Supervisión y Concentración y/o el Director del Archivo General;
-VIII.- Asistir a los cursos de capacitación, los miembros y/o suplentes que el Archivo General Municipal imparta sobre administración de documentos;
-IX.- Informar de manera oportuna al personal de todas las áreas que conforman las Dependencias y Organismos Descentralizados del Honorable Ayuntamiento, las decisiones en materia de administración documental que establezca el Archivo General Municipal;
-X.- Dar a conocer a las Dependencias y Organismos Descentralizados el calendario que establezca el Archivo General Municipal para la transferencia de Archivos Administrativos; y
-XI.- Coordinar conjuntamente con la Dirección del Archivo General Municipal el proceso de transferencia de Archivos Administrativos, en los términos que establecen los "Lineamientos Generales para la administración Documental y Transferencia de Archivos Administrativos al Archivo General Municipal de Puebla".
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 1703 Quáter.- (DEROGADO, P.O. 4 DE SEPTIEMBRE DE 2015)
