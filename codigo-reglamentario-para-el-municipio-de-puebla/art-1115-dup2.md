@@ -1,1 +1,0 @@
-Artículo 1115.- La Unidad Municipal de Protección Civil y el Departamento de Bomberos de Puebla, están facultados para indicar las protecciones contra incendio adicionales a las previstas en el presente apartado, según las condiciones especiales de los inmuebles y las actividades que en ellos se realicen.
