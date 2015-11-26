@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE NOVIEMBRE DE 2015)
+Artículo 691 Quinquies.- El tutor voluntario que tenga conocimiento de que la persona que lo nombró como tal se encuentra en alguno de los supuestos del artículo 42, deberá promover de inmediato, el procedimiento de interdicción correspondiente a efecto de que el Juez competente haga la declaración de incapacidad y le ratifique como tutor de su persona y su patrimonio.

@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 25 DE ENERO DE 2008)
 Artículo 3274 Bis.- Siempre que se otorgue un testamento público, el Notario debe formular un aviso de testamento al Archivo de Notarías, en el que se expresen al menos los datos siguientes:
-l. Nombre completo del testador;
+I. Nombre completo del testador;
 II. Nacionalidad;
 III. Fecha y lugar de nacimiento;
 IV. Clave Única del Registro Nacional de Población;
