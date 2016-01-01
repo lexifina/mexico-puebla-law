@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2011)
-ARTICULO 42-A.- Para los efectos de lo dispuesto por los incisos f) y g) de la fracción VII del artículo 41 de este Código, las visitas de inspección se realizarán conforme a lo siguiente:
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2015)
+ARTICULO 42-A. Para los efectos de lo dispuesto por los incisos f), g) y h) de la fracción VII del artículo 41 de este Código, las visitas de inspección se realizarán conforme a lo siguiente
 (REFORMADA, P.O. 18 DE DICIEMBRE DE 2006)
 I.- Se llevarán a cabo en el domicilio fiscal, establecimientos, sucursales, locales, puestos fijos y semifijos en la vía pública, en los que los contribuyentes realicen sus actividades, señalando el objeto que se persigue;
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2011)

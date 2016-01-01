@@ -11,8 +11,7 @@ El monto a liquidar por el deudor, se calculará adicionando al monto referido e
 El monto para liquidar el adeudo a que se hace referencia en el párrafo anterior, deberá cubrirse en una sola exhibición a más tardar en la fecha de pago especificada por el contribuyente en su solicitud de autorización de pago a plazos;
 (REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2011)
 III.- Una vez recibida la solicitud de autorización de pago a plazos, ya sea en parcialidades o diferido, de las contribuciones omitidas, productos o aprovechamientos y de sus accesorios, la autoridad exigirá la garantía del interés fiscal en relación al 80% del monto total del adeudo al que se hace referencia en la fracción II del artículo 41-B de este Código, más la cantidad que resulte de aplicar la tasa de recargos por plazo y por el plazo solicitado de acuerdo a lo dispuesto en las fracciones I y II de este artículo.
-(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2006)
-La autoridad fiscal podrá dispensar el otorgamiento de la garantía del interés fiscal cuando en relación con el monto del crédito respectivo, sea notoria la insolvencia del deudor o la insuficiencia de su capacidad económica;
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 31 DE DICIEMBRE DE 2015)
 IV.- Se revocará la autorización para pagar a plazos en parcialidades o en forma diferida, cuando:
 a) No se otorgue, desaparezca o resulte insuficiente la garantía del interés fiscal, en los casos que no se hubiere dispensado, sin que el contribuyente dé nueva garantía o amplíe la que resulte insuficiente;
 b) El contribuyente se encuentre sometido a un procedimiento de concurso mercantil o sea declarado en quiebra por la autoridad judicial correspondiente;
