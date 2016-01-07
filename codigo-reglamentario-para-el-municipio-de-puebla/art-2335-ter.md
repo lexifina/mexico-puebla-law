@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 27 DE OCTUBRE DE 2014)
 Artículo 2335 Ter.- El Premio al "Compromiso por la inclusión de las personas con discapacidad: María Eugenia Antúnez Farrugia", será entregado en las categorías siguientes:
-l. Primera Categoría: Otorgado a quienes destaquen en alguno de los rubros siguientes:
+I. Primera Categoría: Otorgado a quienes destaquen en alguno de los rubros siguientes:
 a) Persona sobresaliente con discapacidad. Que genere una imagen notable y destacada comprometida con el esfuerzo diario.
 b) Inclusión educativa. Persona comprometida con la inclusión de alumnos con discapacidad en sus aulas, o bien que aporte experiencias relevantes de apoyo y/o impulso para su desarrollo educativo.
 c) Investigación. Persona que genere conocimiento relevante sobre la discapacidad o el desarrollo de ayudas técnicas y tecnológicas que faciliten la participación de las personas con discapacidad.

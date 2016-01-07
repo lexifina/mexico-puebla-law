@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 11 DE NOVIEMBRE DE 2013)
 Artículo 1424 Ter.- Para comercializar en un Mercado de Antigüedades, los interesados deberán cubrir los siguientes requisitos, ante el Departamento de Concertación de Espacios Públicos:
-l. Solicitud por escrito dirigido al Departamento de Concertación de Espacios Públicos de la Secretaría de Gobernación Municipal;
+I. Solicitud por escrito dirigido al Departamento de Concertación de Espacios Públicos de la Secretaría de Gobernación Municipal;
 II. Para Persona Física identificación Oficial y para Persona Moral acta constitutiva;
 III. Croquis de localización de donde se desea ejercer la actividad;
 IV. Señalar qué tipo de mercancías se pretenden comercializar, observando lo dispuesto por el artículo 1424 Quater fracción III del presente Capítulo;
