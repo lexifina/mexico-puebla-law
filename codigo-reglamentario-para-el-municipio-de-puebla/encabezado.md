@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS ACUERDO DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA
 Código publicado en el Periódico Oficial del Estado de Puebla, el viernes 31 de diciembre de 2004.
 ACUERDO del Honorable Cabido del Municipio de Puebla, de fecha 25 de agosto de 2004, que aprueba el Dictamen presentado por las Comisiones Unidas de Desarrollo Urbano, Obras y Servicios Públicos, de Industria y Comercio, y de Patrimonio y Hacienda Pública Municipal, referente al Código Reglamentario para el Municipio de Puebla.
