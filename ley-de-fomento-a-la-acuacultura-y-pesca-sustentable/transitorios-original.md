@@ -1,0 +1,6 @@
+TRANSITORIOS
+PRIMERO. El Presente Decreto entrara en vigor a partir del día siguiente al de su publicación en el Periódico Oficial del Estado de Puebla.
+SEGUNDO. El Reglamento de la presente Ley deberá ser expedido por el Gobernador del Estado, dentro de los ciento ochenta días hábiles siguientes a la entrada en vigor de esta Ley.
+TERCERO. Se derogan todas las disposiciones que se opongan a este ordenamiento.
+EL GOBERNADOR hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Cuatro Veces Heroica Puebla de Zaragoza, a los veinticinco días del mes de febrero de dos mil dieciséis. Diputado Presidente. CARLOS MARTÍNEZ AMADOR. Rúbrica. Diputada Vicepresidenta. PATRICIA LEAL ISLAS. Rúbrica. Diputada Secretaria. MARÍA SARA CAMELIA CHILACA MARTÍNEZ. Rúbrica. Diputado Secretario. ROSALÍO ZANATTA VIDAURRI. Rúbrica.
+Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Cuatro Veces Heroica Puebla de Zaragoza, a los veintiséis días del mes de febrero de dos mil dieciséis. El Gobernador Constitucional del Estado. C. RAFAEL MORENO VALLE ROSAS. Rúbrica. El Secretario General de Gobierno. C. DIÓDORO HUMBERTO CARRASCO ALTAMIRANO. Rúbrica. El Secretario de Desarrollo Rural, Sustentabilidad y Ordenamiento Territorial. C. RODRIGO RIESTRA PIÑA. Rúbrica.
