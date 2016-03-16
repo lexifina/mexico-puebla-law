@@ -1,0 +1,6 @@
+P.O. 16 DE MARZO DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE ADICIONA UN CUARTO PÁRRAFO AL ARTÍCULO 829 DEL CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA; REFORMA LA FRACCIÓN XVII DEL ARTÍCULO 91, LAS FRACCIONES VIII Y IX DEL 231, Y ADICIONA LA FRACCIÓN X AL ARTÍCULO 231, TODOS DE LA LEY ORGÁNICA MUNICIPAL, ADICIONA UNA FRACCIÓN II BIS AL ARTÍCULO 253 DEL CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA, Y REFORMA LA LETRA V DEL ARTÍCULO 69 DEL CÓDIGO DE PROCEDIMIENTOS EN MATERIA DE DEFENSA SOCIAL PARA EL ESTADO LIBRE Y SOBERANO DE PUEBLA".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. La Secretaría General de Gobierno emitirá las disposiciones reglamentarias para la aplicación del presente Decreto.
+TERCERO. Las autoridades municipales que coadyuven con la prestación del servicio a que se refiere este Decreto, deberán acreditar la capacitación necesaria en términos de los lineamientos que emita la Secretaría General de Gobierno, así como de la convocatoria y demás disposiciones administrativas aplicables.
+CUARTO. Se derogan las disposiciones que se opongan a lo establecido en el presente Decreto.
