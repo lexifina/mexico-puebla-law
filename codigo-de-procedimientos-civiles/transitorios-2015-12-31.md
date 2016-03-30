@@ -10,3 +10,4 @@ SÉPTIMO. Queda prohibido a los Notarios protocolizar contratos privados traslat
 OCTAVO. Se derogan todas las disposiciones que se opongan a la presente Ley.
 NOVENO. Se abroga la Ley del Notariado del Estado de Puebla, publicada en el Periódico Oficial del Estado el treinta y uno de diciembre de dos mil doce, 9ª sección.
 DÉCIMO. Todos los asuntos pendientes de trámite, se concluirán con la Ley del Notariado vigente al momento de su sustanciación.
+(F. DE E., P.O. 29 DE MARZO DE 2016)
