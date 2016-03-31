@@ -1,4 +1,4 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 3 DE FEBRERO DE 2015)
-DEL PREMIO MUNICIPAL DE INVESTIGACIÓN HISTÓRICA
-(ADICIONADO, P.O. 3 DE FEBRERO DE 2015)
-Artículo 2335 Sexies.- El Premio Municipal de Investigación Histórica será entregado a aquellas personas que hayan realizado alguna investigación histórica del Municipio de Puebla.
+(REFORMADA SU DENOMINACIÓN, P.O. 30 DE MARZO DE 2016)
+DEL PREMIO MUNICIPAL DE INVESTIGACIÓN HISTÓRICA: "HUGO LEICHT"
+(REFORMADO, P.O. 30 DE MARZO DE 2016)
+Artículo 2335 Sexies.- El Premio Municipal de Investigación Histórica: "Hugo Leicht" será entregado a aquellas personas que hayan realizado alguna investigación histórica del Municipio de Puebla.
