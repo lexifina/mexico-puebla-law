@@ -1,0 +1,4 @@
+P.O. 4 DE AGOSTO DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DEL CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA, Y DE LA LEY ESTATAL DEL DEPORTE, EN MATERIA DE "VIOLENCIA EN EVENTOS DEPORTIVOS O DE ESPECTÁCULOS".]
+PRIMERO. El presente Decreto, entrará en vigor a partir del día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
