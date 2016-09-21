@@ -1,4 +1,4 @@
-LEY DE FRACCIONAMIENTOS Y ACCIONES URBANISTICAS DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
+LEY DE FRACCIONAMIENTOS Y ACCIONES URBANÍSTICAS DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
 Ley publicada en la Sección Quinta del Periódico Oficial del Estado de Puebla, el miércoles 25 de febrero de 2004.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
 LICENCIADO MELQUIADES MORALES FLORES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a sus habitantes sabed:
