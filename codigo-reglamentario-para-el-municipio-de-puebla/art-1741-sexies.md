@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 24 DE MARZO DE 2014)
 Artículo 1741 Sexies.- Las infracciones de carácter administrativo a los preceptos contenidos en el presente Capítulo del Código Reglamentario para el Municipio de Puebla, serán sancionadas conforme a lo siguiente:
-I. Multa por el equivalente de uno o cien días de salario mínimo general vigente en el Estado de Puebla, en el momento a imponer la sanción.
+(REFORMADA, P.O. 31 DE OCTUBRE DE 2016)
+I. Multa por el equivalente del valor diario de 1 a 100 unidades de medida y actualización, en el momento a imponer la sanción.
 II. Reparación del daño ocasionado.
 III. En caso grave, arresto administrativo hasta por 36 horas.
 Las sanciones a que se refiere este artículo, se aplicarán sin perjuicio de las sanciones penales que proceda.
