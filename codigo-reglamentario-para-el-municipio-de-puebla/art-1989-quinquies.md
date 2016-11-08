@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE NOVIEMBRE DE 2016)
+Artículo 1989 Quinquies.- Los trabajadores que soliciten el otorgamiento de una pensión, deberán sujetarse a las investigaciones de carácter médico, social y económico que el Ayuntamiento, a través del Comité Técnico de Pensiones, estime necesarias para comprobar si existe o subsiste el estado de inhabilitación médica.
+Con la finalidad de evitar simulaciones en el otorgamiento de la pensión referida cualquier irregularidad que se advierta sobre el particular por parte del Ayuntamiento será sancionada por la autoridad correspondiente de conformidad con lo dispuesto a las normas penales aplicables.

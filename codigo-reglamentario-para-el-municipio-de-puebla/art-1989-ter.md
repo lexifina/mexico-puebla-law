@@ -1,0 +1,13 @@
+(ADICIONADO, P.O. 7 DE NOVIEMBRE DE 2016)
+Artículo 1989 Ter.- Los trabajadores que deseen tramitar la opinión técnica expedida por el Sistema Municipal DIF, deberán apegarse al procedimiento siguiente:
+I. El trabajador estará obligado a dar aviso inmediato a su superior jerárquico, así como a la Dirección de Recursos Humanos de la Secretaría de Administración sobre las causas justificadas que le impidan concurrir al trabajo y que puedan provocar estado de inhabilitación médica, salvo caso de fuerza mayor.
+II. Deberá entregar, ante la Dirección de Atención a la Salud del Sistema Municipal DIF, la solicitud de opinión técnica, debiendo acompañar los requisitos siguientes:
+a. Documentación médica en donde se haya realizado el diagnóstico del padecimiento o enfermedad, expedida por alguna de las Instituciones del Sistema Nacional de Salud y que cumplan con los criterios establecido (sic) en la NOM-004-SSA3-2012 del expediente clínico.
+b. Solicitud de inhabilitación médica dirigida a la Dirección de Atención a la Salud del Sistema Municipal DIF.
+III. La Dirección de Atención a la Salud del Sistema Municipal DIF remitirá al Departamento de Atención Medica la solicitud y documentación recibida, para que el personal médico valore la documentación, citando al trabajador para realizar una revisión médica general.
+IV. El Departamento de Atención Médica informará al Director de Atención de la Salud, de manera clara y precisa, si con la documentación médica presentada y con la revisión médica general al trabajador (a), existen elementos para confirmar o negar la existencia de inhabilitación médica.
+V. El Director de Atención a la Salud recibirá el informe del Departamento de Atención Médica, para su revisión; en caso de no existir observación alguna, emitirá la opinión técnica correspondiente, entregándoselo al interesado para continuar con los trámites ante la Secretaría del Ayuntamiento.
+VI. El Director de Atención a la Salud remitirá el expediente completo del trabajador (a) al Comité Técnico de Pensiones, dentro del término de 60 días a partir de la recepción de solicitud de inhabilitación médica.
+VII. El Comité Técnico de Pensiones recibirá el expediente, que contendrá la opinión técnica de la Dirección de Atención a la Salud del Sistema Municipal DIF, la solicitud firmada por el trabajador (a), la documentación médica y todas las constancias que se hayan generado.
+VIII. El Comité Técnico de Pensiones sesionará dentro de un término no mayor a 30 días para llevar a cabo la revisión y análisis del expediente, pudiendo convocar al trabajador (a), emitiendo el acuerdo correspondiente.
+Este proceso no podrá exceder de 90 días.
