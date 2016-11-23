@@ -1,6 +1,7 @@
 P.O. 1 DE AGOSTO DE 2016.
 [N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE PUEBLA; DE LA LEY DE CATASTRO DEL ESTADO DE PUEBLA Y DE LA LEY DEL REGISTRO PÚBLICO DE LA PROPIEDAD DEL ESTADO DE PUEBLA".]
-PRIMERO. El presente Decreto entrará en vigor a los sesenta días siguientes de su publicación en el Periódico Oficial del Estado.
+(REFORMADO, P.O. 22 DE NOVIEMBRE DE 2016)
+PRIMERO. El presente Decreto entrará en vigor a los quince días del mes de febrero del año dos mil diecisiete.
 SEGUNDO. Para el cumplimiento de este Decreto, el Ejecutivo Estatal, a través de las instancias competentes, podrá reorganizar la estructura de las Dependencias, así como crear, fusionar, escindir o disolver las unidades administrativas necesarias, realizando las adecuaciones presupuestales de conformidad con lo estipulado en la Ley de Egresos del Estado de Puebla para el ejercicio fiscal que corresponda.
 TERCERO. La Secretaría de la Contraloría coordinará la transferencia de los recursos humanos, materiales y financieros, así como del acervo documental existente, hacia las Dependencias que ejercerán las atribuciones para las que fueron originalmente asignados.
 CUARTO. Cuando alguna unidad administrativa pase de una Dependencia a otra, con motivo de lo establecido en el presente Decreto, la transferencia se realizará incluyendo los recursos humanos que sean necesarios, así como los financieros y materiales que la unidad administrativa haya utilizado para la atención de los asuntos que conoció.
