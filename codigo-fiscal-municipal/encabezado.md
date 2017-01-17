@@ -1,4 +1,4 @@
-CODIGO FISCAL MUNICIPAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
+CÓDIGO FISCAL MUNICIPAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
 Código publicado en la Sección Tercera del Periódico Oficial del Estado de Puebla, el miércoles 5 de diciembre de 2001.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
 LICENCIADO MELQUIADES MORALES FLORES, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a sus habitantes sabed:
