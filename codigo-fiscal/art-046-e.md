@@ -3,3 +3,5 @@ ARTICULO 46 E.- Las autoridades fiscales que en el ejercicio de las facultades d
 Cuando las autoridades no emitan la resolución correspondiente dentro del plazo mencionado, quedarán sin efectos las actuaciones que se hubieren realizado.
 (F. DE E., P.O. 27 DE FEBRERO DE 2008)
 Asimismo, cuando los contribuyentes no proporcionen documentación o la proporcionen incompleta, dentro del ejercicio de las facultades de comprobación a que se refiere los incisos b) y c) de la fracción VII del artículo 41 de este Código, aquélla no podrá ser valorada por autoridad distinta a la que conoció de la revisión.
+(ADICIONADO, P.O. 16 DE ENERO DE 2017)
+El plazo para notificar la resolución a que se refiere este artículo se suspenderá en los casos previstos en las fracciones I, II y III del artículo 46-D de este Código.

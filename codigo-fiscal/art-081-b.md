@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 16 DE ENERO DE 2017)
+ARTICULO 81-B.- Para garantizar el interés fiscal sobre un mismo crédito fiscal podrán combinarse las diferentes formas que al efecto establece el artículo 81 de este Código, así como sustituirse entre sí, en cuyo caso antes de cancelarse la garantía original deberá constituirse la garantía sustituta, siempre y cuando la garantía que se pretende sustituir no sea exigible.
+La garantía constituida podrá garantizar uno o varios créditos fiscales siempre que la misma así lo señale y comprenda los conceptos previstos en el artículo 83 de este Código respecto de los créditos a garantizar.

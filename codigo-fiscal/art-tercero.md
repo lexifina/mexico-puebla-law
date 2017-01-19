@@ -7,4 +7,4 @@ Diputado Secretario.
 Roberto Pozos Cuspinera
 Diputado Secretario.
 Por tanto mando se imprima, publique y circule para sus efectos.- Dado en el Palacio del Poder Ejecutivo en la Heroica Puebla de Zaragoza, a los veinticuatro días del mes de diciembre de mil novecientos ochenta y siete.- El Gobernador Constitucional del Estado.- Lic. Mariano Piña Olaya.- El Secretario de Gobernación.- Lic. Marco Antonio Rojas Flores.- Rúbricas.
-N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
