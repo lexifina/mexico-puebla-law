@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 11 DE FEBRERO DE 2011)
 Artículo 1299 Bis.- Previo a la realización de los trámites para la obtención de la Licencia, el interesado deberá solicitar por escrito a la Agencia el Dictamen de Factibilidad, debiendo presentar:
-I. Cuando se actué a través de un representante legal, el documento que acredite su personalidad;
+I. Cuando se actúe a través de un representante legal, el documento que acredite su personalidad;
 II. Representación gráfica que describa la forma, dimensiones, así como las especificaciones técnicas y los materiales de que estará constituido, incluyendo los datos de altura sobre el nivel de la banqueta y para el caso de anuncio en saliente volado o colgante, la saliente máxima desde el alineamiento del predio y desde el paramento de la construcción en la que quedará instalado el anuncio;
 III. Presentar copia de la autorización del Instituto Nacional de Antropología e Historia, o dictamen del Ayuntamiento, para inmuebles que se encuentren ubicados dentro de la Zona de Monumentos;
 IV. Proyecto arquitectónico, estructural y de instalaciones, firmado por el Director Responsable de Obra o Corresponsable, en el caso de los anuncios señalados en el artículo 1296 del presente ordenamiento;
