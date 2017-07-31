@@ -11,7 +11,8 @@ La Dirección de Prerrogativas y Partidos Políticos, registrará los consentimi
 El apoyo a un candidato común se formalizará únicamente durante el periodo de registro de candidatos. En dicho periodo, tanto los partidos como los candidatos deberán entregar al Instituto el documento correspondiente en el que consten sus consentimientos respectivos.
 Los partidos que apoyen candidatos comunes conservarán cada uno su monto de financiamiento público, su tiempo que corresponda de acceso a radio y televisión, así como su representación en los órganos del Instituto y en las mesas directivas de casilla.
 En las boletas respectivas, cada partido político conservará el espacio correspondiente a su emblema, con el nombre del candidato común al que se apoye.
-En caso de partidos políticos que postulen candidaturas comunes y no alcancen el tres por ciento de la votación, se aplicará lo previsto en el artículo 318 de este Código.
+(REFORMADO, P.O. 31 DE JULIO DE 2017)
+En caso de partidos políticos que postulen candidaturas comunes y no alcancen el tres por ciento de la votación, en términos del artículo 40, se aplicará lo previsto en el artículo 318 de este Código.
 Los partidos políticos que postulen candidatos comunes, no podrán postular en las demarcaciones donde así lo hagan candidatos propios ni de otros partidos políticos para la elección que acordaron la candidatura común.
 En el escrutinio y cómputo de casilla para el caso de las candidaturas comunes, se contarán los votos a favor de candidatos, así como los votos a favor de los partidos políticos que las postulen, en los términos previstos en este Código.
 Los votos en los que se hubiesen marcado más de una opción de los partidos que apoyen la candidatura común, serán considerados válidos para el candidato postulado y contarán como un solo voto.

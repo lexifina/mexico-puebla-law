@@ -16,8 +16,8 @@ Durante las precampañas solo se podrán utilizar artículos utilitarios textile
 (REFORMADA, P.O. 22 DE AGOSTO DE 2015)
 IV.- Precandidato. Es el ciudadano que decide contender al interior de un determinado partido político o coalición, con el fin de alcanzar su postulación como candidato a un cargo de elección popular.
 B.- Del inicio y término de las precampañas:
-(REFORMADA, P.O. 20 DE FEBRERO DE 2012)
-I.- Los procesos internos de los partidos políticos o coaliciones, orientados a seleccionar a sus candidatos que habrán de contender en las elecciones a que se refiere este Código, comprenden la convocatoria, las precampañas y la postulación; aquellos sólo podrán realizarse a partir del inicio del proceso electoral y deberán concluir necesariamente a más tardar en la misma fecha que las precampañas;
+(REFORMADA, P.O. 31 DE JULIO DE 2017)
+I.- Los procesos internos de los partidos políticos, coaliciones, orientados a seleccionar a sus candidatos que habrán de contender en las elecciones a que se refiere este Código, comprenden la convocatoria, las precampañas y la postulación; aquellos sólo podrán realizarse a partir del inicio del proceso electoral y deberán concluir necesariamente a más tardar antes del inicio del periodo para el registro de candidatos.
 (REFORMADO PRIMER PÁRRAFO, P.O. 9 DE ENERO DE 2016)
 II.- En el caso de que el proceso electoral tenga como fin la renovación de los Poderes Ejecutivo, o Legislativo, así como miembros de Ayuntamientos, las precampañas no podrán exceder de diez días, y deberán iniciar veinte días previos al inicio del periodo de presentación del registro de candidatos.
 (REFORMADO, P.O. 9 DE ENERO DE 2016)
@@ -37,11 +37,10 @@ f) El monto autorizado para gastos de precampaña.
 IV.- Los partidos políticos dispondrán lo necesario a fin de que los precandidatos, sean reconocidos como tales, extendiéndoles la constancia de registro respectiva; se exceptúan los municipios en donde el candidato de los partidos políticos se determine mediante el método de usos y costumbres;
 (REFORMADA, P.O. 22 DE AGOSTO DE 2015)
 V.- La propaganda de las precampañas se sujetará a las disposiciones contenidas en el presente Código relativas a la propaganda electoral así como a las demás disposiciones aplicables;
-(NOTA: EL 24 DE NOVIEMBRE DE 2015, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO CUARTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 88/2015 Y SUS ACUMULADAS 93/2015 Y 95/2015, DECLARÓ LA INVALIDEZ DE LA FRACCIÓN VI DEL APARTADO B DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 25 DE NOVIEMBRE DE 2015 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/expedientes/).
-(REFORMADO PRIMER PÁRRAFO, P.O. 22 DE AGOSTO DE 2015)
-VI.- LOS PARTIDOS POLÍTICOS, PRECANDIDATOS Y SIMPATIZANTES ESTÁN OBLIGADOS A RETIRAR SU PROPAGANDA ELECTORAL DE PRECAMPAÑA PARA SU RECICLAJE, POR LO MENOS TRES DÍAS ANTES AL INICIO DEL PLAZO PARA EL REGISTRO DE CANDIDATOS DE LA ELECCIÓN DE QUE SE TRATE.
-EN CASO DE NO HACERLO, SE PEDIRÁ A LAS AUTORIDADES MUNICIPALES PROCEDAN A REALIZAR EL RETIRO, APLICANDO EL COSTO DE DICHOS TRABAJOS CON CARGO A LAS PRERROGATIVAS DEL PARTIDO POLÍTICO INFRACTOR.
-LOS PARTIDOS POLÍTICOS TOMARÁN LAS MEDIDAS NECESARIAS PARA QUE SUS PRECANDIDATOS CUMPLAN CON ESTA DISPOSICIÓN.
+(REFORMADA PRIMER PÁRRAFO, P.O. 31 DE JULIO DE 2017)
+VI.- Los partidos políticos, precandidatos y simpatizantes están obligados a retirar su propaganda electoral de precampaña para su reciclaje, dentro de los siete días siguientes a la conclusión de la precampaña.
+En caso de no hacerlo, se pedirá a las autoridades municipales procedan a realizar el retiro, aplicando el costo de dichos trabajos con cargo a las prerrogativas del partido político infractor.
+Los partidos políticos tomarán las medidas necesarias para que sus precandidatos cumplan con esta disposición.
 C.- Del tope de gastos de precampaña:
 I.- En su primera sesión, el Consejo General dará a conocer el tope de gastos de las precampañas para la selección de candidatos, el cual no podrá ser mayor al veinte por ciento del monto fijado para gastos de campaña en la elección inmediata anterior del mismo nivel;
 (REFORMADA, P.O. 22 DE AGOSTO DE 2015)
