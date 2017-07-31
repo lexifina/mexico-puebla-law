@@ -12,7 +12,8 @@ Al efecto, los aspirantes estarán sujetos al tope de gastos que determine el Co
 (ADICIONADO, P.O. 22 DE AGOSTO DE 2015)
 No podrán ser candidatos independientes las personas que:
 I.- Sean o hayan sido, presidente del comité ejecutivo nacional, estatal, municipal, dirigente, militante, afiliado o su equivalente, de un partido político, en los doce meses anteriores al día de la elección del proceso electivo en el que pretendan postularse;
-II.- Hayan participado como candidatos a cualquier cargo de elección popular postulados por partido político, en candidatura común o coalición en el proceso electoral federal o local inmediato anterior;
+(REFORMADA, P.O. 31 DE JULIO DE 2017)
+II.- Hayan participado como candidatos a cualquier cargo de elección popular postulados por partido político, en candidatura común, convenio de asociación electoral o coalición en el proceso electoral federal o local inmediato anterior;
 III.- Hayan participado en un proceso de selección interna de candidatos de algún partido político o coalición en el mismo proceso electoral; y
 IV.- Desempeñen un cargo de elección popular, a menos que renuncien al partido por el que accedieron al cargo, doce meses antes al día de la jornada electoral.
 (ADICIONADO, P.O. 22 DE AGOSTO DE 2015)

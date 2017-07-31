@@ -20,3 +20,5 @@ V.- El remanente que quede después de haber asignado los enteros, se irá repar
 VI.- La suma de los votos de cada partido coaligado o de candidatura común provenientes de sumar y hacer las operaciones que se señalan en las fracciones anteriores con las boletas marcadas o cruzadas en dos o más emblemas que apoyan a un mismo candidato, deberá ser igual al número de boletas o votos a que se refiere la fracción I del presente artículo; y
 (REFORMADA, P.O. 22 DE AGOSTO DE 2015)
 VII.- La suma total de los votos de todos los partidos políticos, una vez contabilizados tanto los votos de las boletas anteriormente señaladas, así como los de las boletas marcadas o cruzadas en un solo emblema para partidos sin coalición o candidatura común, como para los que sí lo tengan, deberá ser igual al número de votos válidos.
+(ADICIONADO, P.O. 31 DE JULIO DE 2017)
+En el caso de los convenios de asociación electoral, el escrutinio y cómputo se sujetará a lo dispuesto por el artículo 65 del presente ordenamiento.
