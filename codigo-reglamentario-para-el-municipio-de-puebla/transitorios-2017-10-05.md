@@ -1,0 +1,4 @@
+P.O. 5 DE OCTUBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "ACUERDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 13 DE SEPTIEMBRE DE 2017, POR EL QUE APRUEBA EL DICTAMEN PRESENTADO POR LOS INTEGRANTES DE LA COMISIÓN DE DESARROLLO URBANO Y MEDIO AMBIENTE, QUE ADICIONA EL LIBRO DÉCIMO SEGUNDO "PREVENCIÓN Y CONTROL DE LA CONTAMINACIÓN DEL AGUA RESIDUAL DEL MUNICIPIO DE PUEBLA", CAPÍTULO 39 "DEL DRENAJE, ALCANTARILLADO, SANEAMIENTO Y REÚSO" AL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA, CON LOS ARTÍCULOS 2380 AL 2439".]
+PRIMERO. Las disposiciones aprobadas en el presente Dictamen entrarán en vigor a partir del día siguiente de su publicación en el Periódico Oficial del Estado de Puebla.
+SEGUNDO. Para efectos del cobro de derechos, productos y contribuciones de la cobertura del SOAPAP se mantendrá la Estructura tarifaria aprobada por el H. Congreso del Estado en todo lo que no se oponga al presente Capítulo.
