@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE DICIEMBRE DE 2017)
+Artículo 1348 Bis.- Los partidos políticos, coaliciones, precandidatos, candidatos y candidatos independientes, deberán utilizar en toda la propaganda electoral impresa, materiales reciclables o biodegradables, que no contengan sustancias tóxicas o nocivas para la salud o el medio ambiente; además deberán presentar a la Secretaría de Desarrollo Urbano y Sustentabilidad, previo a su uso, un plan de reciclaje de la propaganda que utilizarán durante su campaña.
+La Secretaría de Desarrollo Urbano y Sustentabilidad, dentro del plazo otorgado para el retiro de la propaganda político electoral, podrá establecer un Centro de Acopio para la recepción de la misma.

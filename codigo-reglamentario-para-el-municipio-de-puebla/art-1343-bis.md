@@ -1,4 +1,4 @@
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 2008)
-Artículo 1343 Bis.- Queda estrictamente prohibido fijar, instalar, y ubicar anuncios políticos o electorales dentro de la Zona de Monumentos a que se refiere el artículo 1186 fracción XXX de este Código, aun cuando sean tiempos electorales, con la finalidad de salvaguardar el patrimonio histórico de la Ciudad de Puebla.
-(REFORMADO, P.O. 31 DE OCTUBRE DE 2016)
-Quien infrinja lo dispuesto por el párrafo anterior, serán sancionados con una multa del equivalente al valor diario de 200 a 3,000 unidades de medida y actualización al momento de determinarla.
+(REFORMADO, P.O. 7 DE DICIEMBRE DE 2017)
+Artículo 1343 Bis.- Queda estrictamente prohibido fijar, instalar, anclar sujetar, exhibir, sobrevolar y ubicar anuncios políticos o electorales luminosos, fijos, semifijos o móviles, los de proyección óptica, así como la circulación de vehículos motorizados y no motorizados que cuenten con una base o estructura publicitaria, aeronaves tripuladas o no tripuladas, sin importar el tamaño o peso, el perifoneo, la instalación de lonas fijas o móviles, en:
+I. La Zona de Monumentos a que se refiere el artículo 761 de este Código, con la finalidad de salvaguardar la imagen del patrimonio histórico de la Ciudad de Puebla.
+Quienes infrinjan lo dispuesto por este artículo, serán sancionados con una multa del equivalente al valor diario de 200 a 3,000 unidades de medida y actualización al momento de determinarla.
