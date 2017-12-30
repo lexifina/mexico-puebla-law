@@ -3,7 +3,8 @@ ARTICULO 46 A.- Cuando las autoridades fiscales soliciten de los contribuyentes,
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 2012)
 I.- La solicitud se notificará a la persona a la que va dirigida en el domicilio fiscal manifestado en el Registro Estatal de Contribuyentes, en su defecto, en alguno de los lugares a que se refiere el artículo 22 de este Código;
 II.- En la solicitud se indicará el lugar y el plazo en los cuales se deben proporcionar los informes o documentos;
-III.- Los informes, libros y documentos requeridos deberán ser proporcionados por la persona a quien se dirigió la solicitud o por su representante legal;
+(REFORMADA, P.O. 29 DE DICIEMBRE DE 2017)
+III.- Los informes, contabilidad, datos y documentos requeridos deberán ser proporcionados por la persona a quien se dirigió la solicitud o por su representante legal;
 IV.- Como consecuencia de la revisión de los informes, datos, documentos o contabilidad requeridos a los contribuyentes, responsables solidarios o terceros con ellos relacionados, las autoridades fiscales formularán oficio de observaciones, en el cual harán constar en forma circunstanciada los hechos u omisiones que se hubiesen conocido y entrañen incumplimiento de las disposiciones fiscales del contribuyente o responsable solidario.
 El oficio de observaciones se notificará en términos de lo dispuesto en la fracción I de este artículo. El contribuyente o el responsable solidario, contará con un plazo de quince días, contados a partir del día siguiente al en que surta efectos la notificación del oficio de observaciones, para presentar los documentos, libros o registros que desvirtúen los hechos u omisiones asentados en el mismo.
 Se tendrán por no desvirtuados los hechos u omisiones consignados en el oficio de observaciones, si en el plazo aludido el contribuyente o el responsable solidario no presenta documentación comprobatoria que lo desvirtúe.
