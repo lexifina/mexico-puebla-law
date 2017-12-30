@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2017)
+ARTÍCULO 9 TER.- Las Obligaciones a corto plazo a que se refieren la fracción XXIV del artículo 2 y el Capítulo Cuarto Bis de la presente Ley, no podrán ser objeto de Refinanciamiento o Reestructura a plazos mayores a un año, ni exceder lo dispuesto en el inciso b) del artículo 23 Bis, salvo las que se destinen a Inversión pública productiva y se cumpla con los requisitos previstos en el citado Capítulo.
