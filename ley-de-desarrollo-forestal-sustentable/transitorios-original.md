@@ -1,5 +1,5 @@
 TRANSITORIOS
-ARTÍCULO PRlMERO.- La presente Ley, entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+ARTÍCULO PRIMERO.- La presente Ley, entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
 ARTÍCULO SEGUNDO.- Se derogan las disposiciones legales y reglamentarias que se opongan a la presente Ley.
 ARTÍCULO TERCERO.- Los Reglamentos, planes y programas a que se refiere la Ley de Desarrollo Forestal Sustentable, se realizarán y aprobarán en un plazo de doce meses contados partir de la entrada en vigor de la presente Ley.
 ARTÍCULO CUARTO.- El Consejo Estatal Forestal y los Consejos Regionales Forestales, serán reestructurados conforme a las disposiciones legales aplicables, en un plazo de cuatro meses contados a partir de la entrada en vigor de esta Ley, en los términos del Reglamento que al efecto expida el Gobernador del Estado.
@@ -7,3 +7,4 @@ ARTÍCULO QUINTO.- Los asuntos en la materia y la substanciación de los recurso
 ARTÍCULO SEXTO.- Los permisos y autorizaciones, concedidas hasta antes de la entrada en vigor de la presente Ley de Desarrollo Forestal Sustentable, continuarán vigentes en tanto no se opongan a las disposiciones de la misma, o a los convenios y acuerdos de coordinación institucional que celebre el Estado con la Federación.
 EL GOBERNADOR, hará publicar y cumplir la presente disposición. Dada en el Palacio del Poder Legislativo, en la Heroica Ciudad de Puebla de Zaragoza, a los ocho días del mes de diciembre de dos mil cinco.- Diputada Presidenta.- EDITH CID PALACIOS.- Rúbrica.- Diputado Vicepresidente.- PERICLES OLIVARES FLORES.- Rúbrica.- Diputado Secretario.- ÓSCAR ANGUIANO MARTÍNEZ.- Rúbrica.- Diputado Secretario.- JUAN AGUILAR HERNÁNDEZ.- Rúbrica.
 Por lo tanto mando se imprima, publique y circule para sus efectos. Dado en el Palacio del Poder Ejecutivo, en la Heroica Puebla de Zaragoza, a los nueve días del mes de diciembre del año dos mil cinco.- El Gobernador Constitucional del Estado.- LICENCIADO MARIO P. MARÍN TORRES.- Rúbrica.- El Secretario de Gobernación.- LICENCIADO JAVIER LÓPEZ ZAVALA.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
