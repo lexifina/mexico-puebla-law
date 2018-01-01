@@ -1,6 +1,5 @@
 (ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 20 DE JULIO DE 2001)
 SECCION SEGUNDA.- DELITOS CONTRA LA INFRAESTRUCTURA HIDRAULICA
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO [N. DE E. REFORMADO], P.O. 20 DE NOVIEMBRE DE 2013)
 Artículo 198 Nonies.- Se aplicará prisión de uno a diez años y multa de tres a veinte mil días de salario mínimo, a quien de manera dolosa o culposa, realice, autorice, consienta, permita u ordene la descarga, el depósito o infiltración de contaminantes, sustancias corrosivas, reactivas, explosivas, tóxicas, inflamables o biológico-infecciosas, al sistema de alcantarillado o drenaje de las poblaciones, en contravención a las disposiciones legales en materia de protección al ambiente y de preservación y restauración del equilibrio ecológico, que causen o puedan causar daño a la salud pública, al medio ambiente o a los recursos naturales.
 Igual sanción se aplicará si la descarga, el depósito o infiltración a que se refiere el párrafo anterior, se realiza en ríos, cuencas, vasos o demás depósitos de corrientes de agua.

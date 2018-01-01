@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2017)
+Artículo 436 Sedecies.- Se sancionará de seis meses a diez años de prisión y multa de treinta a ciento cincuenta días del valor diario de la Unidad de Medida y Actualización, vigente en el momento de la comisión del delito, al servidor público que en el desarrollo de sus funciones, teniendo conocimiento de un hecho de corrupción conforme las disposiciones de este capítulo, no lo denuncie a la autoridad competente, o no la haga cesar, si estuviera en sus atribuciones.

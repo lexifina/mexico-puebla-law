@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2017)
+Artículo 436 Octies.- Si la evasión se verificare exclusivamente por descuido o negligencia del custodio o conductor, éste será sancionado como reo de un delito de imprudencia. La sanción cesará al momento en que se logre la reaprehensión del prófugo, si se consiguiere por gestiones del custodio o conductor responsable y antes de que pasen cuatro meses contados desde la evasión.

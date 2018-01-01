@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, P.O. 19 DE MAYO DE 2014)
 Artículo 56 Nonies.- Los vehículos que por ser necesarios para la práctica de diligencias ministeriales se aseguren por delitos culposos ocasionados con motivo del tránsito de vehículos serán entregados de inmediato a sus propietarios, poseedores o representantes legales, en depósito previa inspección ministerial.
 El depositario estará obligado a mantener el vehículo dentro del Distrito Judicial del que se trate, a disposición del Ministerio Público, conservándolo como hubiese quedado después de los hechos, salvo autorización expresa y por escrito del Ministerio Público, debiendo presentarlo a la autoridad cuando se le requiera para la práctica de diligencias.

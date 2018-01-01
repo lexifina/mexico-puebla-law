@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (DEROGADO ÚLTIMO PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2013)
 (ADICIONADO, P.O. 13 DE MARZO DE 2015)
 Artículo 413 Ter.- Fuera de los casos previstos en las fracciones I y II del artículo anterior, se aplicarán las sanciones siguientes:

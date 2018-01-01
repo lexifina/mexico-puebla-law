@@ -1,0 +1,8 @@
+P.O. 29 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE PUEBLA; ASIMISMO REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DEL CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA, EN MATERIA DEL SISTEMA ANTICORRUPCIÓN DEL ESTADO".]
+PRIMERO. El presente Decreto entrará en vigor a los quince días hábiles siguientes de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. Los procedimientos penales y administrativos iniciados antes de la entrada en vigor del presente Decreto serán concluidos conforme las disposiciones legales vigentes al momento de la comisión del hecho posiblemente constitutivo de delito o de responsabilidad administrativa, según corresponda.
+CUARTO. En términos del artículo 142 Bis del Código Penal del Estado Libre y Soberano de Puebla, la potestad punitiva y los efectos de procedimiento penal:
+El delito de evasión de presos referido en los artículos 167, 168, 169, 170, 171, 173, 174, 175, 176 y 177, derogados por este Decreto, no se extinguen, por permanecer la descripción de la conducta sancionada penalmente en los artículos 436 Sexies, 436 Septies, 436 Octies, 436 Nonies, 436 Decies, 436 Undecies, 436 Duodecies y 436 Terdecies, en el mismo ordenamiento legal.
+Por lo que hace los delitos de Tortura y otros tratos o penas crueles, inhumanos o degradantes y sus sanciones, se aplicarán las disposiciones que establece la Ley General para Prevenir, Investigar y Sancionar la Tortura y otros Tratos o Penas Crueles, Inhumanos o Degradantes.

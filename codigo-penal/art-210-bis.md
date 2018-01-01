@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2014)
 Artículo 210 Bis.- Se impondrá pena de prisión de cuatro a diez años y de mil a dos mil días de salario a quien de forma intencional:
 I.- Altere, destruya, pierda o perturbe ilícitamente el lugar de los hechos, los indicios, huellas o vestigios del hecho delictivo o los instrumentos, objetos o productos del delito; o
