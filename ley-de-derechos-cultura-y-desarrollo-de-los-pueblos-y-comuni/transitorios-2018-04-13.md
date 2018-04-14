@@ -1,0 +1,5 @@
+P.O. 13 DE ABRIL DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY PARA EL ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE PUEBLA; SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 135 DE LA LEY ORGÁNICA DEL PODER JUDICIAL DEL ESTADO DE PUEBLA, Y SE ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 19 DE LA LEY DE DERECHOS, CULTURA Y DESARROLLO DE LOS PUEBLOS Y COMUNIDADES INDÍGENAS DEL ESTADO DE PUEBLA".]
+PRIMERO. El presente Decreto deberá publicarse en el Periódico Oficial del Estado y entrará en vigor al día siguiente de su publicación.
+SEGUNDO. Dentro del año siguiente a la entrada en vigor del presente Decreto, todos los órganos del Poder Legislativo, Judicial y Ejecutivo del Estado de Puebla, así como los órganos constitucionalmente autónomos, de acuerdo a su disponibilidad presupuestal, deberán contar con la certificación de la norma mexicana vigente en igualdad laboral y no discriminación.
+TERCERO. Se derogan todas las disposiciones que se opongan al presente Decreto.

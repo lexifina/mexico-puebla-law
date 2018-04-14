@@ -1,4 +1,4 @@
-LEY DE DERECHOS, CULTURA Y DESARROLLO DE LOS PUEBLOS Y COMUNIDADES INDIGENAS DEL ESTADO DE PUEBLA
+LEY DE DERECHOS, CULTURA Y DESARROLLO DE LOS PUEBLOS Y COMUNIDADES INDÍGENAS DEL ESTADO DE PUEBLA
 Ley publicada en la Cuarta Sección del Periódico Oficial del Estado de Puebla, el lunes 24 de enero de 2011.
 DECRETO del Honorable Congreso del Estado, que expide la LEY DE DERECHOS, CULTURA Y DESARROLLO DE LOS PUEBLOS Y COMUNIDADES INDÍGENAS DEL ESTADO DE PUEBLA.
 Al margen un sello con el Escudo Nacional y una leyenda que dice: Estados Unidos Mexicanos.- H. Congreso del Estado.- Puebla.
