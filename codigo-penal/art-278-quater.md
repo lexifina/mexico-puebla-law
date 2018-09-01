@@ -1,3 +1,6 @@
-(ADICIONADO, P.O. 23 DE MARZO DE 2007)
-Artículo 278 Quáter.- Al responsable del delito de hostigamiento sexual se le impondrán de seis meses a dos años de prisión y multa de cincuenta a trescientos días de salario y será punible cuando se ocasione un daño o perjuicio en la posición laboral, docente, doméstica o de cualquier naturaleza que se derive de la subordinación de la persona agredida.
-Al responsable del delito de acoso sexual se le impondrá multa de cincuenta a trescientos días de salario.
+(REFORMADO, P.O. 31 DE AGOSTO DE 2018)
+Artículo 278 Quáter.- Al responsable del delito de hostigamiento sexual se le impondrán de seis meses a dos años de prisión y multa de cincuenta a trescientos días del valor diario de la Unidad de Medida y Actualización en el momento de la comisión del delito y será punible cuando se ocasione un daño o perjuicio en la posición laboral, docente, doméstica o de cualquier naturaleza que se derive de la subordinación de la persona agredida.
+Al responsable del delito de acoso sexual se le impondrá multa de cincuenta a trescientos días del valor diario de la Unidad de Medida y Actualización en el momento de la comisión del delito.
+Cuando la víctima sea mujer, en el caso del delito de acoso sexual, se impondrá además de la sanción pecuniaria señalada para tal efecto, de un mes a un año de prisión.
+Cuando la víctima sea mujer, en el caso del delito de hostigamiento sexual, la sanción que corresponda se aumentará desde una tercera parte de la mínima y hasta dos terceras partes de la máxima.
+Además, en ambos casos, se sujetará al agresor a un tratamiento integral para su reeducación y sensibilización conforme a las medidas establecidas en la Ley para el Acceso de las Mujeres a una Vida Libre de Violencia del Estado de Puebla.
