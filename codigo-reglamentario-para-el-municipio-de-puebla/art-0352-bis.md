@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2018)
+Artículo 352 Bis.- Cuando sea necesario utilizar la grúa para remitir el vehículo al Depósito Oficial, el Agente de la Dirección de Tránsito deberá observar lo siguiente:
+a) Al conductor del vehículo le será asignado por parte del Agente de la Dirección de Transito un prestador del servicio, mismo que deberá contar con previa autorización de las dependencias municipales correspondientes, en el ámbito de su competencia;
+b) La asignación de los prestadores del servicio funcionará de manera rotativa y por periodos de un mes, cubriendo todos y cada uno de los sectores pertenecientes al municipio, y
+c) Verificar que el prestador del servicio elabore la memoria descriptiva, en la que se especifique cada una de las maniobras realizadas, precisando el horario de inicio y terminación de las mismas, además de un inventario detallado del vehículo; dichos documentos serán firmados por el conductor, el Agente de la Dirección de Tránsito y el operador de la grúa y se entregará copia de los mismos al conductor.
