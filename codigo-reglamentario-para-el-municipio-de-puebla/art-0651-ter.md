@@ -1,7 +1,14 @@
-(ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2011)
-Artículo 651 Ter.- Cuando un producto o mercancía sea retirado de la vía pública en que se encuentre por violación a este Capítulo, será remitido a la bodega del Departamento de Vía Pública, al realizar el retiro de la mercancía los servidores deberán:
-I. Al momento de iniciar el retiro de mercancía el inspector deberá de identificarse ante el vendedor ambulante, semifijo y prestador ambulante de servicio, con credencial vigente con fotografía, como servidor adscrito al Departamento de Vía Pública;
+(REFORMADO PRIMER PÁRRAFO, P.O. 12 DE NOVIEMBRE DE 2018)
+Artículo 651 Ter.- Los vendedores ambulantes, vendedores semifijos, prestadores ambulantes de servicios y artistas urbanos que violen alguna disposición del presente Capítulo, les será retirada su mercancía de la vía pública por los inspectores del Departamento de Vía Pública, quienes al realizar el retiro de la mercancía actuarán conforme a lo siguiente:
+(REFORMADA, P.O. 12 DE NOVIEMBRE DE 2018)
+I. Identificarse ante el vendedor ambulante, semifijo, prestador ambulante de servicio y Artista Urbano, con credencial vigente con fotografía expedida por la dependencia competente del H. Ayuntamiento, como servidor público adscrito al Departamento de Vía Pública;
+(ADICIONADA, P.O. 7 DE SEPTIEMBRE DE 2011)
 II. Levantar acta por triplicado que incluya inventario con la descripción y el estado en que se encuentran los productos o mercancías al momento que se retiran de la vía pública. La cual deberá ser firmada y entregada al vendedor ambulante, semifijo o prestador ambulante de servicio;
-III. Remitir inmediatamente los productos o mercancías a la bodega del Departamento de Vía Pública, para evitar que éstos se destruyan, alteren o se sustraigan;
-IV. Una vez que los productos o mercancías retirados se encuentren en la bodega del Departamento de Vía Pública, se deberán identificar con sellos, marcas o señales del Ayuntamiento que los identifiquen; y
-V. Solicitar al Jefe del Departamento de Vía Pública haga constar el resguardo y las condiciones de los productos o mercancías que sean retirados, mediante la publicación en los estrados de la bodega del Departamento, a más tardar al día siguiente hábil.
+(REFORMADA [N. DE E. ADICIONADA], P.O. 12 DE NOVIEMBRE DE 2018)
+III. En el caso de que el probable infractor, se niegue a firmar el acta mencionada en la fracción anterior, se hará constar dicha circunstancia por el funcionario actuante, sin que la falta de tal firma afecte su validez;
+(REFORMADA [N. DE E. REUBICADA], P.O. 12 DE NOVIEMBRE DE 2018)
+IV. Remitir inmediatamente los productos o mercancías a la bodega del Departamento de Vía Pública, para evitar que éstos se destruyan, alteren o se sustraigan;
+(REFORMADA [N. DE E. REUBICADA], P.O. 12 DE NOVIEMBRE DE 2018)
+V. Una vez que los productos o mercancías retirados se encuentren en la bodega del Departamento de Vía Pública, se deberán identificar con sellos, marcas o señales del Ayuntamiento que los identifiquen; y
+(ADICIONADA [N. DE E. REFORMADA], P.O. 12 DE NOVIEMBRE DE 2018)
+VI. Solicitar al Jefe del Departamento de Vía Pública haga constar el resguardo y las condiciones de los productos o mercancías que sean retirados, mediante la publicación en los estrados de la bodega del Departamento, a más tardar, dentro de las 24 horas siguientes del aseguramiento.

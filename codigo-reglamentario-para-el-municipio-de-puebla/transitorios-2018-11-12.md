@@ -1,0 +1,3 @@
+P.O. 12 DE NOVIEMBRE DE 2018.
+[N. DE E. TRANSITORIO DEL "ACUERDO DE CABILDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 5 DE OCTUBRE DE 2018, QUE APRUEBA EL DICTAMEN PRESENTADO POR LOS INTEGRANTES DE LA COMISIÓN DE GOBERNACIÓN Y JUSTICIA, POR EL QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DEL LIBRO SEGUNDO, CAPÍTULO 16, DEL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA".]
+ÚNICO. La presente reforma y adición de diversas disposiciones del Libro Segundo, Capítulo 16 del Código Reglamentario para el Municipio de Puebla son de orden general y entrarán en vigor un día después de su publicación en el Periódico Oficial del Estado.
