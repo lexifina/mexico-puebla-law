@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 15 DE NOVIEMBRE DE 2018)
+Artículo 882 Bis. En el caso del proyecto de un desarrollo urbano habitacional, industrial o edificio público o privado que no cuente con la factibilidad de descarga de sus aguas residuales a un sistema municipal, el o los responsables de dicho desarrollo, presentarán ante el organismo operador correspondiente un proyecto de planta de tratamiento del tipo adecuado a las descargas residuales según el caso y a la cantidad y tipo de usuarios del desarrollo propuesto.
+Asimismo, se deberán de observar lo establecido en las consideraciones previstas en el artículo 882 del presente Código.
