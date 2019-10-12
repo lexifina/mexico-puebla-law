@@ -11,7 +11,8 @@ VII. Solicitar a los titulares, propietarios, poseedores y/o responsables solida
 VIII. La administración del Padrón de Anuncios;
 IX. Establecer los lineamientos para la generación de placas o folios de identificación que serán utilizadas para cada ejercicio fiscal, atendiendo al tipo de anuncios y las especificaciones de diseño, material y contenido que deban observar;
 X. Establecer los lineamientos para la generación de Zonas Publicitarias en el Municipio;
-XI. Establecer y difundir las especificaciones que debe tener cada anuncio nuevo, estableciendo, en su caso, periodos de transición hasta uniformar las características de los mismos;
+(REFORMADA, P.O. 9 DE OCTUBRE DE 2019)
+XI. Establecer y difundir las especificaciones que debe tener cada anuncio nuevo, estableciendo, en su caso, períodos de transición hasta uniformar las características de los mismos y cerciorase de que no contengan publicidad sexista, violencia mediática, simbólica o incite cualquier otro tipo de violencia contra las mujeres;
 XII. Proponer a la Secretaría de Gestión los instrumentos necesarios para coordinar y homologar programas en materia de anuncios con los Municipios conurbanos;
 XIII. Adoptar las medidas necesarias para el adecuado aprovechamiento de espacios publicitarios, bajo criterios equitativos, de transparencia, legalidad y de igualdad en el acceso a los anunciantes, propietarios, poseedores, y/o titulares de anuncios, garantizando el acceso público, permanente y sin formalidades, a la información sobre la oferta de espacios;
 XIV. Integrar y administrar un inventario de infraestructura aprovechable en materia de anuncios;
