@@ -7,5 +7,5 @@ IV.- Cuando se trate de bienes que por cualquier circunstancia se encuentren en 
 Se entenderá que los bienes se encuentran a disposición del interesado, a partir del día siguiente a aquél en que se le notifique la resolución correspondiente.
 Cuando los bienes embargados hubieran causado abandono, las autoridades fiscales notificarán personalmente o por correo certificado con acuse de recibo a los propietarios de los mismos, que ha transcurrido el plazo de abandono y que cuentan con quince días para retirar los bienes. En los casos en que no se hubiera señalado domicilio o el señalado no corresponda a la persona, la notificación se efectuará a través de estrados, en los términos del artículo 79 de este Código.
 Los bienes que pasen a propiedad del Fisco Estatal conforme a este artículo, podrán ser enajenados en los términos del artículo 124 de este Código o donarse para obras o servicios públicos, o a instituciones de asistencia o de beneficencia autorizadas conforme a las leyes de la materia
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 2013)
-El producto de la venta se destinará a pagar los cargos originados por el manejo, custodia y gastos de venta de los citados bienes en los términos que mediante reglas establezca la Secretaría de Finanzas y Administración.
+(REFORMADO, P.O. 6 DE DICIEMBRE DE 2019)
+El producto de la venta se destinará a pagar los cargos originados por el manejo, custodia y gastos de venta de los citados bienes en los términos que mediante reglas establezca la Secretaría de Planeación y Finanzas.

@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2013)
-ARTICULO 41-E.- La Secretaría de Finanzas y Administración podrá cancelar créditos fiscales en las cuentas públicas, por incosteabilidad en el cobro o por insolvencia del deudor o de los responsables solidarios, en los siguientes términos:
+(REFORMADO PRIMER PÁRRAFO, P.O. 6 DE DICIEMBRE DE 2019)
+ARTICULO 41-E.- La Secretaría de Planeación y Finanzas podrá cancelar créditos fiscales en las cuentas públicas, por incosteabilidad en el cobro o por insolvencia del deudor o de los responsables solidarios, en los siguientes términos:
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 2011)
 I.- Se consideran créditos de cobro incosteable, aquéllos cuyo importe histórico sea inferior o igual al equivalente en moneda nacional a 200 unidades de inversión.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 2011)
