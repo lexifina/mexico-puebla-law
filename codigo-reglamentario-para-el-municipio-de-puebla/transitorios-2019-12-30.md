@@ -1,0 +1,4 @@
+P.O. 30 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "ACUERDO DE CABILDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 19 DE NOVIEMBRE DE 2019, QUE APRUEBA EL DICTAMEN PRESENTADO POR LOS INTEGRANTES DE LAS COMISIONES UNIDAS DE MOVILIDAD URBANA Y DE REGLAMENTACIÓN MUNICIPAL, POR EL QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DEL CAPÍTULO 10 "TRÁNSITO MUNICIPAL, MOVILIDAD Y SEGURIDAD VIAL", DEL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA".]
+PRIMERO. La presente reforma y adición de diversas disposiciones al Capítulo 10 del Código Reglamentario para el Municipio de Puebla, son de orden general y entrarán en vigor un día después de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Dictamen.
