@@ -1,3 +1,6 @@
-(ADICIONADO, P.O. 2 DE MARZO DE 2001)
-Artículo 190 Bis.- Al que a sabiendas de que no cuenta con la concesión o permiso otorgado por la autoridad competente preste el servicio público de transporte o del servicio mercantil, se le impondrán de tres meses a tres años de prisión y multa de cincuenta a quinientos días de salario.
-Igual sanción se impondrá al propietario del medio de transporte que realice, contrate o permita la prestación de estos servicios.
+(REFORMADO, P.O. 12 DE MARZO DE 2020)
+Artículo 190 Bis.- Se les impondrán de ocho meses a seis años de prisión y multa de cien a quinientas veces de Unidad de Medida y Actualización:
+I). Al que preste, el servicio público de transporte, servicio mercantil, servicio auxiliar de arrastre, arrastre y salvamento, a sabiendas que no cuenta con la concesión o permiso otorgado por la autoridad competente.
+II). Al que preste, el servicio público de depósito de vehículos, a sabiendas que no cuenta con la concesión o permiso otorgado por la autoridad competente.
+Además, se sancionará con el decomiso del vehículo, utilizado en la comisión del delito, así como con la suspensión de uno a diez años o la cancelación definitiva de la licencia para conducir, expedidos por la autoridad competente.
+Si en la comisión delictiva interviene un concesionario o permisionario, un socio o representante de una persona jurídica concesionaria o permisionaria para el servicio público de transporte, servicio mercantil, servicio auxiliar de arrastre, arrastre y salvamento o depósitos de vehículos, las penas que correspondan se incrementarán desde una tercera parte hasta dos terceras partes, independientemente de las sanciones administrativas a que haya lugar.
