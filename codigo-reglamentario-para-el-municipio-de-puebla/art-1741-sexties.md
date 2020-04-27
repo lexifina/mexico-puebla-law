@@ -1,11 +1,16 @@
-(ADICIONADO, P.O. 24 DE MARZO DE 2014)
-Artículo 1741 Sexies.- Las infracciones de carácter administrativo a los preceptos contenidos en el presente Capítulo del Código Reglamentario para el Municipio de Puebla, serán sancionadas conforme a lo siguiente:
-(REFORMADA, P.O. 31 DE OCTUBRE DE 2016)
-I. Multa por el equivalente del valor diario de 1 a 100 unidades de medida y actualización, en el momento a imponer la sanción.
+(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE ABRIL DE 2020)
+Artículo 1741 Sexties (sic).- Las infracciones de carácter administrativo a los preceptos contenidos en el presente Capítulo del Código Reglamentario para el Municipio de Puebla, serán sancionadas con una o más de las siguientes sanciones:
+(REFORMADA, P.O. 24 DE ABRIL DE 2020)
+I. Multa por el equivalente del valor diario de 5 a 400 unidades de medida y actualización, en el momento a imponer la sanción.
+(ADICIONADA, P.O. 24 DE MARZO DE 2014)
 II. Reparación del daño ocasionado.
+(ADICIONADA, P.O. 24 DE MARZO DE 2014)
 III. En caso grave, arresto administrativo hasta por 36 horas.
+(ADICIONADO, P.O. 24 DE MARZO DE 2014)
 Las sanciones a que se refiere este artículo, se aplicarán sin perjuicio de las sanciones penales que proceda.
+(ADICIONADO, P.O. 24 DE MARZO DE 2014)
 En los casos de reincidencia, el monto de la multa podrá ser hasta por dos veces el monto originalmente impuesto, sin exceder del doble del máximo permitido.
+(ADICIONADO [N. DE E. CON SUS FRACCIONES], P.O. 24 DE MARZO DE 2014)
 Para la imposición de las sanciones por infracciones a este Reglamento obligatoriamente se tomará en cuenta:
 I. La gravedad de la infracción considerando primordialmente los siguientes criterios:
 a) El daño ocasionado al área verde o a la vegetación.

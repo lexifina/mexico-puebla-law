@@ -1,6 +1,8 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE ABRIL DE 2020)
+Artículo 1741 Quinquies.- Para la atención de las quejas o denuncias, que sean de jurisdicción municipal, la Secretaría, ordenará la práctica de una visita de verificación a la fuente denunciada para la comprobación de los datos aportados por el denunciante.
 (ADICIONADO, P.O. 24 DE MARZO DE 2014)
-Artículo 1741 Quinquies.- Para la atención de las quejas o denuncias, que sean de jurisdicción municipal, la Secretaría de Medio Ambiente y Servicios Públicos, ordenará la práctica de una visita de verificación a la fuente denunciada para la comprobación de los datos aportados por el denunciante.
 Las visitas de verificación sólo podrán realizarse mediante orden escrita y por el personal debidamente autorizado quien deberá identificarse con el presunto infractor y dejar copia de la orden escrita, debidamente fundada y motivada, en la que se señalará el personal facultado para realizar la diligencia, en el lugar o zona a inspeccionarse, el objeto y el alcance de la misma.
+(ADICIONADO [N. DE E. CON SUS NUMERALES], P.O. 24 DE MARZO DE 2014)
 El personal autorizado para la práctica de la visita de verificación seguirá el procedimiento de la siguiente forma:
 1. Requerirá a la persona con la que ésta se entienda, para que ésta designe uno o dos testigos que deberán estar presentes durante el desarrollo de la misma. En caso de negatividad o ausencia de aquellos, el personal de inspección hará la designación.
 2. Dará a conocer los hechos denunciados al presunto infractor.
@@ -8,6 +10,9 @@ El personal autorizado para la práctica de la visita de verificación seguirá 
 4. Concluido el levantamiento del acta de inspección, ésta será firmada por la persona que haya intervenido en la misma, por el o los testigos y por el personal de inspección.
 5. En caso de que la persona con la que se entendió la diligencia o los testigos se nieguen a firmarla, así se hará constar en al acta sin que ello afecte la validez de la misma.
 6. Al término de la verificación, entregará una cédula informativa en la que registrarán los hechos, actos u omisiones que hubiere observado durante la visita, fijando las medidas de mitigación.
+(ADICIONADO, P.O. 24 DE MARZO DE 2014)
 Dicha visita de verificación será acompañada con las impresiones fotográficas que puedan aportar una mejor concepción de los hechos verificados y estas se agregarán al expediente correspondiente.
+(ADICIONADO, P.O. 24 DE MARZO DE 2014)
 En caso de no encontrarse el presunto infractor se le dejará citatorio para que dentro de las veinticuatro horas siguientes espere al personal de inspección autorizado a una hora determinada para el desahogo de la diligencia. Al día siguiente y en la hora previamente fijada, de no ser atendido el citatorio, la diligencia se practicará con la persona que en el lugar se encuentre.
+(ADICIONADO, P.O. 24 DE MARZO DE 2014)
 Cuando en el lugar objeto de la diligencia, alguno o algunas personas manifiesten oposición y obstaculizan la práctica de la misma, el personal que lleve a cabo la visita de verificación podrá solicitar el auxilio de la fuerza pública para efectuar la visita de inspección.
