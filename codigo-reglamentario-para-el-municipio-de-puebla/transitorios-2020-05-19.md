@@ -1,0 +1,4 @@
+P.O. 19 DE MAYO DE 2020.
+[N. DE E. TRANSITORIOS DEL "ACUERDO DE CABILDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 6 DE MARZO DE 2020, MEDIANTE EL CUAL APRUEBA EL DICTAMEN PRESENTADO POR LOS INTEGRANTES DE LA COMISIÓN DE REGLAMENTACIÓN MUNICIPAL, POR EL QUE ADICIONA EL ARTÍCULO 20 BIS AL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA".]
+ARTÍCULO PRIMERO. La adición aprobada en el presente Dictamen entrará en vigor a partir del día hábil siguiente de su publicación en el Periódico Oficial del Estado de Puebla.
+ARTÍCULO SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Dictamen.
