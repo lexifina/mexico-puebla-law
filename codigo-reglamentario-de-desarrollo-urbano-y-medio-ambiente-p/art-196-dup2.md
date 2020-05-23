@@ -1,0 +1,3 @@
+Artículo 196. De los Pasillos y Corredores
+Todas las viviendas de un edificio deberán tener salidas a pasillo o a corredores que conduzcan directamente a las puertas de salida o a las escaleras.
+El ancho de pasillos o corredores nunca será menor de 1.20 metros y cuando haya barandales éstos deberán tener una altura mínima de 90 milímetros.

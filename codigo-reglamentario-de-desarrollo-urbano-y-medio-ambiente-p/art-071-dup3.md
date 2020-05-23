@@ -1,0 +1,3 @@
+Artículo 71. De las (sic) Sujeción al Alineamiento y Número Oficial
+Toda construcción que se levante con frente a la vía pública deberá sujetarse al Alineamiento y Número Oficial que fijará la DADU, de acuerdo con los datos oficiales que tenga y conforme a los proyectos de planeación que estén legalmente aprobados.
+Toda construcción que sobrepase el alineamiento oficial será considerada como invasión de la vía pública, quedando obligado el dueño de la construcción, a demoler la parte de la misma que motive dicha invasión dentro del plazo que señale la DADU y ésta última en caso de incumplimiento, ejecutará dicha acción con cargo al propietario, además de suspenderse en forma inmediata la Licencia de Construcción.

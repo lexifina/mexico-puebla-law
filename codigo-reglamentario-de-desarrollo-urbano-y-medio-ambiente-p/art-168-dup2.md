@@ -1,0 +1,1 @@
+Artículo 168. Ceder a título de donación gratuita de conformidad con lo que establece el presente Libro Reglamento, el área de terreno que para cada tipo de fraccionamiento o desarrollo se señala, para áreas ecológicas y equipamiento urbano; o en su caso, la aportación económica correspondiente.

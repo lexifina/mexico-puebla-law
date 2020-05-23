@@ -1,0 +1,4 @@
+Artículo 11. Días y horas inhábiles y habilitación de las mismas
+Para efectos del artículo anterior, no se consideran días hábiles los sábados, los domingos, el 1º de enero, 5 de febrero, 21 de marzo, 1º de mayo, 5 de mayo, 1º y 16 de septiembre, 20 de noviembre; 1º de diciembre de cada seis años cuando corresponda a la transmisión del Poder Ejecutivo Federal y el 25 de diciembre.
+Asimismo, se tendrán como horas hábiles las comprendidas entre las 8:00 y 18:00 horas. Una visita de inspección iniciada en horas hábiles podrá concluirse en hora inhábil sin afectar su validez.
+Las autoridades competentes, en caso de urgencia o de existir causa justificada, podrán habilitar horas y días inhábiles cuando las acciones u omisiones motivo de la visita de inspección se realicen en tales días y horas.

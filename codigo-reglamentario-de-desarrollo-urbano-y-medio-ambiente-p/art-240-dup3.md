@@ -1,0 +1,2 @@
+Artículo 240. De los permisos para anuncios y antenas.
+Las licencias para la instalación de anuncios y antenas de telecomunicaciones, así como para la obtención del Dictamen de Factibilidad de Imagen Urbana, se sujetarán a lo que establezca el presente Libro, el Programa de Desarrollo Urbano del Municipio de San Andrés Cholula, Puebla; y las demás disposiciones jurídicas y administrativas aplicables.

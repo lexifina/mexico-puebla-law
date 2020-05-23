@@ -1,0 +1,17 @@
+Artículo 94. Obligaciones de los anunciantes.
+Son obligaciones de los anunciantes, propietarios, poseedores, titulares y/o responsables solidarios:
+I. Proporcionar a la Dirección de Sustentabilidad y Gestión Urbana, la información relativa al tipo de anuncio, descripción del anuncio, número de placa o folio, colonia, calle, número oficial en que se ubica, características técnicas, material, figura geométrica, número de caras, orientación, situación jurídica, vigencia y los demás datos que sean posibles para la ubicación e identificación de los contribuyentes y sujetos de esta regulación;
+II. Solicitar ante la Dirección de Sustentabilidad y Gestión Urbana la Factibilidad, Licencia y/o Permiso Publicitario en materia de anuncios;
+III. Solicitar ante la Dirección de Sustentabilidad y Gestión Urbana, el refrendo correspondiente dentro de los 25 días hábiles previos a la conclusión de la vigencia de la Licencia y/o Permiso;
+IV. Mostrar la Licencia y/o Permiso Publicitario, la póliza por responsabilidad y daños causados a terceros, así como la fianza señalada en la fracción IX de este artículo, cuando le sean requeridos por la autoridad competente, en los casos de inspección o verificación o en cualquier otro momento que se le requiera;
+V. Señalar un domicilio para recibir todo tipo de notificaciones y en general para la práctica de diligencias de carácter administrativo dentro del Municipio, e informar a la Dirección de Sustentabilidad y Gestión Urbana sobre los cambios que realice, los que deberán ser en el propio Municipio;
+VI. Verificar que los anuncios se coloquen conforme a los medios de control que emita la Dirección de Sustentabilidad y Gestión Urbana y los requisitos en materia de protección civil, construcciones y demás que resulten aplicables;
+VII. Declarar bajo protesta de decir verdad las medidas totales del área de exhibición del anuncio;
+VIII. Cuando se trate de permisos para la colocación de anuncios tipo pendón se deberá otorgar fianza a favor de la Tesorería Municipal, por un monto del 100% del valor total del permiso al momento de su otorgamiento, monto que será determinado por la Dirección de Sustentabilidad y Gestión Urbana de acuerdo con la ley de ingresos vigente;
+IX. Presentar póliza de seguro de responsabilidad civil y daños causados a terceros, la cual deberá estar vigente;
+X. Utilizar la Licencia y/o Permiso Publicitario otorgado por la Dirección de Sustentabilidad y Gestión Urbana en el (los) lugar(es) en el (los) cual(es) fue autorizado, en razón de lo anterior queda estrictamente prohibido la utilización de postes de concreto y de madera pertenecientes a entidades paraestatales, paramunicipales, sociedades o cualquier otra persona física o jurídica de derecho público o privado, árboles, marquesinas, peldaños, cercas, bardas, o cualquier otro lugar que no sea autorizado;
+XI. Que el texto y contenido de los anuncios no resulten agresivos y obscenos para la población;
+XII. Regularizarse cuando se encuentren fuera del marco legal que los rige, sin perjuicio de las sanciones a que haya lugar;
+XIII. Las demás que señalen los ordenamientos aplicables en la materia;
+XIV. Conservar el anuncio en condiciones de seguridad, estabilidad y mantenimiento, llevando a cabo las obras o reparaciones que la autoridad indique, y
+XV. Pagar los gastos que haya cubierto el Ayuntamiento y que se hubieren generado con motivo del retiro de anuncios.

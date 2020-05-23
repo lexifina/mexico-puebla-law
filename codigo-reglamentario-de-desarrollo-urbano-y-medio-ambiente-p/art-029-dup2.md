@@ -1,0 +1,2 @@
+Artículo 29. De las reexpediciones de licencias de fraccionamientos y obras de urbanización
+Para emitir una reexpedición de licencia de fraccionamiento y obras de urbanización de fraccionamientos y/o desarrollos horizontales, verticales o mixto, independientemente del régimen en que se encuentran, que no implique modificación de datos o cambio de proyecto, se otorgará respetando la vigencia de origen, para lo cual deberá presentar oficio de solicitud y copia del antecedente. En caso contrario deberá realizar el trámite correspondiente.

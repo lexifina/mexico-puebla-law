@@ -1,0 +1,2 @@
+Artículo 253. De las acciones preventivas.
+Las medidas de seguridad en materia de anuncios, son acciones preventivas de ejecución inmediata, de carácter temporal y preventivo, cuyo objetivo es evitar el daño a personas o bienes. En los casos en que así lo determine la autoridad, se aplicarán las sanciones previstas con cargo a los titulares de las licencias y/o permisos, y/o a los responsables solidarios. Su monto será considerado como crédito fiscal.

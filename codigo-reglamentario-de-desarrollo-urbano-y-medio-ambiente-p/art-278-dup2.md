@@ -1,0 +1,2 @@
+Artículo 278. De las quejas por actos en contra del patrimonio.
+Cualquier persona podrá presentar ante la Secretaría de Desarrollo Urbano Sustentable, quejas por la realización de actos que produzcan daño al patrimonio ubicados en los Polígonos denominados "Zonas de Protección" del Municipio de San Andrés Cholula, así como el incumplimiento de cualquiera de las disposiciones señaladas en este Libro.

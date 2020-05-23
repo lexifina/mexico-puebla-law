@@ -1,0 +1,2 @@
+Artículo 21. De la Facultad de la Autoridad para la adopción de Nuevos Modelos de Movilidad
+La autoridad por medio de sus dependencias competentes deberá crear la infraestructura física para promover y priorizar en la población la adopción de nuevos modelos de movilidad urbana sustentable, encaminados a facilitar sus desplazamientos, reducir la necesidad del uso del automóvil particular, promover el uso del transporte no motorizado, lograr una sana convivencia en las calles a través de la conectividad y diseño de vialidades y el respeto a la jerarquía de la movilidad.

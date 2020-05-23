@@ -1,0 +1,2 @@
+Artículo 171. De la autorización de publicidad condicionada en áreas de propiedad común.
+En áreas de propiedad común, queda condicionado el colocar cualquier tipo de publicidad, igualmente en edificios de vivienda y accesos que sean comunes a urbanizaciones o unidades habitacionales y el publicista deberá contar con un oficio de autorización de la Asociación de Colonos o Vecinos correspondiente, como requisito indispensable para que la Secretaría de Desarrollo Urbano Sustentable extienda la autorización del anuncio.

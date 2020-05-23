@@ -1,0 +1,1 @@
+Artículo 170. Construir y entregar los sistemas de agua potable, plantas de tratamiento, drenaje y alcantarillado a la autoridad correspondiente, cuando así se le requiera, con el objeto de interconectarlos a la red municipal y optimizar el aprovechamiento de su fuente de abastecimiento, independientemente de que el fraccionamiento esté o no municipalizado.

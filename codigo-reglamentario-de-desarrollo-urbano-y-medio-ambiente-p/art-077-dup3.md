@@ -1,0 +1,5 @@
+Artículo 77. De los Predios que Simulen Subdivisiones o Lotificaciones
+Los inmuebles que, por sus características de infraestructura y accesos, son Fraccionamientos, no serán otorgados Alineamientos ni Números Oficiales, si se encuentran las siguientes características:
+a) Que por los antecedentes de propiedad y/o segregación o subdivisión, el predio de origen se halla subdividido en más de 10 fracciones resultantes, y
+b) Que independientemente de la propiedad del predio, si la vialidad interna de uso privado o servidumbre de paso, este contigua y sin delimitación con otra vialidad de similares características y de acceso a más de 10 fracciones resultantes o lotes.
+En el supuesto que la solicitud de Alineamiento y Número Oficial sea en un predio con las características antes mencionadas, se emitirá el respectivo, condicionado al cumplimiento de lo que indica el Artículo 3, Fracción. (sic) XXXIV y Artículo 24, de la Ley de Fraccionamientos y Acciones Urbanísticas para el Estado Libre y Soberano de Puebla, así como el Libro Segundo. De Fraccionamientos y Desarrollos en Condominio.

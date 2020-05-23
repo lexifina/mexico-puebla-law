@@ -1,0 +1,2 @@
+Artículo 28. Vías Públicas Procedentes de Urbanizaciones:
+Todo terreno que en los planos urbanos que el Municipio reconozca como oficiales, aparezca como vía pública, se presumirá que tiene la calidad de tal, salvo prueba plena de lo contrario, que deberá rendir aquel que afirme que el terreno en cuestión es de propiedad particular o pretenda tener algún derecho exclusivo a su uso, mientras no se pronuncie sentencia ejecutoria que así lo declare, nadie podrá impedir o estorbar el uso público del terreno de que se trate.

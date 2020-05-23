@@ -1,0 +1,2 @@
+Artículo 118. De la regularización en los casos de no localizar al propietario, fraccionador o desarrollador
+En el caso de que el propietario, fraccionador o desarrollador, haya desaparecido o no haya forma de localizarlo, los propietarios de los lotes, inmuebles o unidades podrán asociarse para realizar el proceso de regularización correspondiente, cumpliendo con los requisitos y disposiciones que se establecen en este Libro Segundo.

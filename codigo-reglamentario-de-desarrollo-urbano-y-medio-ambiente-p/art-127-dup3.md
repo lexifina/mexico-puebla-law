@@ -1,0 +1,4 @@
+Artículo 127. De la clasificación de la construcción por su modo de ejecución
+La construcción, por su modo de ejecución, podrá ser:
+I. De la construcción de obra inmediata: Es aquélla en los (sic) que el constructor debe llevar a efecto la totalidad del proyecto y la instalación de los servicios públicos a que queda obligado, dentro del término que establezca la autoridad competente a partir de la fecha de autorización, y
+II. De la construcción de obra por etapas: Es aquélla en los (sic) que el constructor, puede efectuar el proyecto y la instalación de los servicios públicos por etapas claramente determinadas al momento de su autorización, las cuales deberá concluir íntegramente, en forma y tiempo, antes de iniciar con la etapa sucesiva; El Proyecto integral deberá presentarse para la autorización de la primera etapa verificando que cumpla con lo señalado en este Libro y PMDUS y con lo necesario para funcionar de manera conjunta

@@ -1,0 +1,4 @@
+CAPÍTULO V
+DE LOS ESTUDIOS DE IMPACTO URBANO
+Artículo 118. De los Estudios de Impacto Urbano
+Previo al Dictamen de Uso de Suelo, estarán sujetos a la elaboración de un Estudio de Impacto Urbano, sólo aquellos usos habitacionales, que impliquen la redensificación respecto a lo que determina este Libro Tercero. De las Construcciones, la Carta Urbana y los planos de Zonificación del Programa Municipal de Desarrollo Urbano Sustentable de San Andrés Cholula vigente, así como también todos aquellos que deseen realizar acciones de urbanización y edificación como: introducción de redes de infraestructura de cabeza, desarrollo de vialidades que estén consideradas como primarias y sus respectivos nodos, infraestructura o equipamientos de alto impacto y los proyectos estratégicos que la DADU considere necesario.

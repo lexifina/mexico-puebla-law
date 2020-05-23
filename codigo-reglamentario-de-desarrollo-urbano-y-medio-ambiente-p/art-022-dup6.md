@@ -1,0 +1,2 @@
+Artículo 22. Delitos
+En aquellos casos que sea procedente, de conformidad con la normatividad aplicable, se hará del conocimiento de la Fiscalía General del Estado, la realización de actos u omisiones que pudieran configurar uno o más delitos. Asimismo, se podrán dar a conocer a las autoridades competentes irregularidades encontradas durante la inspección que no sean competencia de las autoridades municipales.

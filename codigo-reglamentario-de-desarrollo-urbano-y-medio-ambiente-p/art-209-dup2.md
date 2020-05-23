@@ -1,0 +1,3 @@
+Artículo 209. De la Iluminación y Ventilación
+Las aulas deberán estar iluminadas y ventiladas por medio de ventanas hacia la vía pública o a patios, debiendo abarcar las ventanas por lo menos toda la longitud de uno de los muros más largos.
+La superficie libre total de ventanas tendrá un mínimo de un quinto de la superficie del piso del aula y la superficie libre para ventilación un mínimo de un quinceavo de dicho piso.

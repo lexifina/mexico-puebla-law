@@ -1,0 +1,2 @@
+Artículo 49. El servicio de limpieza.
+El servicio de limpieza pública deberá tener horarios fuera de las horas pico del tránsito vehicular, la limpieza deberá efectuarse con el equipo idóneo para su buena operación y conservación. Así mismo se deberá contar con contenedores apropiados para la disposición de los residuos, mismos que no deberán estar expuestos en la vía pública en fechas y horarios no autorizados para su recolección.

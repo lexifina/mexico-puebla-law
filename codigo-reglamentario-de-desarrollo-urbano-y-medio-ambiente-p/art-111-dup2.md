@@ -1,0 +1,2 @@
+Artículo 111. Improcedencia de la constancia de liberación o terminación de obras de urbanización
+En caso de detectarse que el proyecto ejecutado no coincide con el proyecto autorizado, no será procedente el trámite de constancia de liberación o terminación de obras de la licencia de fraccionamientos y obras de urbanización, debiendo realizar el trámite de cambio y/o modificación de proyecto, según los lineamientos indicados en este Libro.

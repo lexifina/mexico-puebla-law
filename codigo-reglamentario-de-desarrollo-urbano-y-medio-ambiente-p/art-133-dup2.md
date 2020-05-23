@@ -1,0 +1,11 @@
+Artículo 133. Cumplimiento mediante donación de terreno
+Para el cumplimiento de las áreas de donación que se realicen mediante la donación de un terreno para áreas ecológicas y de equipamiento urbano dentro del mismo predio de los fraccionamientos y desarrollos, independientemente de su régimen de propiedad, el predio a donar deberá cumplir las siguientes características:
+I. Estar libre de gravamen y libre de toda controversia ante autoridades judiciales o administrativas;
+II. Su ubicación debe permitir su utilización, preferentemente deberán estar sobre vialidades reconocidas y de libre acceso, nunca en zonas de acceso privado o al interior de los fraccionamientos o desarrollos, independientemente del régimen de propiedad en que se encuentren;
+III. Deberá tener frente a la vía pública y guardar como mínimo, una relación de 1:3 metros lineales respecto al frente de la misma y una topografía susceptible de aprovechamiento;
+IV. No se aceptarán como áreas de donación: camellones o polígonos remanentes de las manzanas;
+V. No debe existir ninguna afectación federal, estatal, ni municipal en el inmueble, ni se aceptarán estas zonas como área de donación;
+VI. No se aceptarán como áreas de donación las restricciones o afectaciones municipales, estatales o federales, y
+VII. No se podrán considerar como áreas de donación a las áreas verdes, jardines, parques, canchas, gimnasios y cualquier tipo de amenidades que sean para uso privado del fraccionamiento o desarrollo, independientemente del régimen de propiedad al que pertenezcan.
+La selección del terreno donado deberá considerar las necesidades de los usuarios del propio fraccionamiento o de las zonas donde este se ubique, conforme a lo establecido en el PDUM.
+Se podrá considerar como parte de la donación, la entrega al Ayuntamiento de aquellos predios con vocación natural o que cuenten con vegetación natural o riqueza biótica para ser destinadas a áreas ecológicas, pudiendo incluso considerarse las zonas determinadas por la Dirección de Protección Civil Municipal, como zonas de riesgo por barrancas o ríos, siempre y cuando sean para uso ecológico o continuación de parques Lineales, y solo para considerarse dentro del 50% correspondiente a las áreas ecológicas, debiendo solventar el otro 50% con destino a equipamiento urbano.

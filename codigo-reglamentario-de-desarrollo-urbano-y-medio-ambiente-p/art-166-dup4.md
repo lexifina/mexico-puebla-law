@@ -1,0 +1,2 @@
+Artículo 166. De la Excepción para la Instalación de los Estacionamientos
+La autoridad municipal podrá autorizar, en los casos que estime convenientes y a solicitud escrita de los interesados, que los estacionamientos para vehículos se establezcan en un lugar distinto del edificio o construcción de que se trate, siempre que la distancia no exceda de 100 metros, presentando un contrato de arrendamiento firmado ante Notario Público.

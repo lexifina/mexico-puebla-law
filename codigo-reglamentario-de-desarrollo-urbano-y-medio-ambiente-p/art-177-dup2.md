@@ -1,0 +1,2 @@
+Artículo 177. De los Inspectores de obra
+La Dirección de (sic) tendrá la facultad para designar como inspectores de obra a ingenieros civiles o arquitectos, con título legalmente expedido, para que vigilen el desarrollo de las obras y se cercioren del cumplimiento de las especificaciones del proyecto definitivo de fraccionamiento. Por lo tanto, se contará con el registro correspondiente, con el objeto de llevar una bitácora de la obra.

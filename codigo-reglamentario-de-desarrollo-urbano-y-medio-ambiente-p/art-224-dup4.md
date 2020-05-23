@@ -1,0 +1,2 @@
+Artículo 224. De la sanción en UMA por infracción al presente Libro.
+En caso de incumplimiento a lo dispuesto en el artículo anterior, se sancionará con multa de 1,000 veces el valor diario de la UMA al momento de determinarla, en el entendido de que las infracciones al presente Libro relativos a la propaganda electoral se sujetarán a lo dispuesto por el artículo 246 del presente ordenamiento. Lo anterior, independientemente de las sanciones a que se hagan acreedores por virtud de la aplicación del presente Libro.

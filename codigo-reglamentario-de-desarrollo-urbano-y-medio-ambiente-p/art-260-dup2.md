@@ -1,0 +1,2 @@
+Artículo 260. De las medidas de seguridad por demolición o riesgo por estabilidad del inmueble.
+En caso de que se detecte, al momento de llevar a cabo una visita de inspección rutinaria, irregularidades por demolición y se ponga en riesgo la estabilidad del inmueble y se vulnere la seguridad de los habitantes; los inspectores podrán ordenar de inmediato la aplicación de las medidas de seguridad que se establece en este Libro, actuando en coordinación con la Dirección de Protección Civil y Bomberos para su acordonamiento y desalojo.

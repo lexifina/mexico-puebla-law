@@ -1,0 +1,2 @@
+Artículo 73. Fraccionamientos comerciales o de servicios
+Los fraccionamientos comerciales o de servicios son aquellos que se destinan a la construcción de inmuebles para la realización de operaciones mercantiles de compraventa y almacenamiento de productos. También son comprendidos en este rubro los que se emplean para la prestación de servicio públicos o privados. La ubicación y características de estos fraccionamientos serán determinados conforme a lo dispuesto por el Programa Municipal de Desarrollo Urbano.

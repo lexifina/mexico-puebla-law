@@ -1,0 +1,13 @@
+Artículo 4. Normar, definir y establecer intervenciones.
+Para efectos de recuperación, conservación, protección, mejoramiento y custodia de los polígonos denominados "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas" del Municipio de San Andrés Cholula; son objetivos fundamentales:
+I. Establecer y definir el conjunto de normas técnicas, funciones, procedimientos y responsabilidades del Ayuntamiento, en la conservación, protección y preservación del patrimonio cultural; así como la conservación y mejoramiento de la imagen y fisonomía urbana, la comunicación de los espacios y elementos urbanos de los Polígonos "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas" del Municipio de San Andrés Cholula;
+II. Preservar el patrimonio edificado arquitectónico y urbano dentro de la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas", recuperando y mejorando los edificios con valor histórico, artístico y cultural y de conjunto dentro del ámbito de competencia municipal;
+III. Establecer las regulaciones urbanísticas para el uso del suelo y las construcciones en la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas";
+IV. Regular las obras de construcción, conservación, restauración, adecuación, integración, liberación y cualquier tipo de intervención que se realice en el ámbito urbano y en los inmuebles de propiedad pública o de particulares ubicados en la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas";
+V. Regular y especificar el contenido del Programa de Desarrollo Urbano aplicables en la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas", para determinar adecuadamente los usos del suelo en la misma, señalándolos en las licencias correspondientes;
+VI. Regular la colocación, fijación y diseño de anuncios y mobiliario urbano, así como su mantenimiento y conservación a fin de preservar la fisonomía e imagen urbana de la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas", preservándola de la contaminación visual, auditiva y ambiental;
+VII. Establecer las normas y principios básicos conforme a los cuales se llevarán a cabo las acciones de protección civil en la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas", a través de los organismos federales, estatales y municipales, así como los organismos sociales y académicos competentes en la materia;
+VIII. Normar la ubicación y prestación de los servicios urbanos y de equipamiento en la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas";
+IX. Normar el otorgamiento de permisos y licencias;
+X. Determinar las sanciones correspondientes por violaciones a este apartado, y
+XI. Normar la participación de los directores responsables y corresponsables de obra que intervengan en la "Zona Monumental", "Pueblo Mágico" y "Zonas Típicas".

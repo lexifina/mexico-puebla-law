@@ -1,0 +1,3 @@
+Artículo 20. Manifestaciones y ofrecimiento de pruebas
+Antes de finalizar la inspección, se permitirá a la persona con la que se entendió la misma que manifieste lo que a su derecho o interés convenga. A continuación, se procederá a firmar el acta por la persona con quien se entendió la inspección, por los testigos y el personal autorizado, quien entregará copia del acta al interesado.
+Si la persona con la que se entendió la inspección o los testigos se negaren a firmar el acta o a proporcionar sus datos, o se negare el interesado a aceptar copia de la misma, dichas circunstancias se asentarán en ella, sin que esto afecte su validez.

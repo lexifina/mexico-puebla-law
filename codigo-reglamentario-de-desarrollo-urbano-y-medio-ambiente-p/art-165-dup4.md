@@ -1,0 +1,2 @@
+Artículo 165. De los Estacionamientos para Servicio de Locales Comerciales o de Servicios
+Los estacionamientos para servicio de locales comerciales o de servicios que se sitúen de manera perpendicular al arroyo vehicular o en batería, deberán situarse al interior del predio a una distancia de 6.00 m respecto a la franja de circulación peatonal sin obstruirla; quedará prohibido ocupar la vía pública o las banquetas con sus franjas que la componen para ubicar los cajones requeridos para el giro comercial.

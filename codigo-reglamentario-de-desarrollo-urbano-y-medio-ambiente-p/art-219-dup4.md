@@ -1,0 +1,3 @@
+Artículo 219. De la prohibición de anuncios políticos o electorales en Zonas de Protección.
+Queda estrictamente prohibido fijar, instalar y ubicar anuncios políticos o electorales dentro de los polígonos denominados "Zonas de Protección" a que se refiere el artículo 42, fracciones I, II y III de este Libro, aun cuando sean tiempos electorales, con la finalidad de salvaguardar el patrimonio histórico y la Imagen Urbana del Municipio de San Andrés Cholula, Puebla.
+Quien infrinja lo dispuesto por el párrafo anterior, serán sancionados con una multa de 200 a 3,000 veces el valor diario de la UMA vigente en el Municipio al momento de determinarla.

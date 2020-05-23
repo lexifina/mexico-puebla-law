@@ -1,0 +1,2 @@
+Artículo 175. Derecho a constituirse como una asociación de colonos
+Los adquirentes de lotes en términos de la legislación aplicable, en los fraccionamientos, divisiones, subdivisiones, segregaciones, fusiones, lotificaciones con apertura de vialidad interna, relotificaciones, así como de los desarrollos en régimen en propiedad y condominio, podrán constituirse en una asociación de colonos, la que deberá contar con su propio reglamento. El acta constitutiva y el reglamento de referencia deberán inscribirse ante la autoridad municipal.

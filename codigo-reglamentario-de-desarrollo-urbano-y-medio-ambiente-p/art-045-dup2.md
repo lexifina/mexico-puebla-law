@@ -1,0 +1,3 @@
+Artículo 45. Disposiciones para servidumbres de paso
+En caso de que las servidumbres de paso no cumplan con su finalidad principal, respecto del predio sirviente y del dominante, en torno al que se constituyó legalmente y sean empleadas para la circulación interna de: divisiones, subdivisiones, segregaciones, lotificaciones con apertura de vialidad y relotificaciones, deberán apegarse a las disposiciones de este libro reglamentario, respecto de las vialidades internas.
+En caso de cualquier infracción a la normatividad se le aplicaran las sanciones correspondientes, determinadas en el capítulo, además de establecerse, en su caso, las restricciones para vialidad o banqueta requeridas en este Libro.

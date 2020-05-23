@@ -1,0 +1,2 @@
+Artículo 208. Del plazo en medidas de corrección por contaminación visual.
+En caso de que la instalación o diseño de un anuncio contravenga lo consignado en la autorización o permiso correspondiente, provocando contaminación visual, la Secretaría de Desarrollo Urbano Sustentable deberá comunicar al interesado que corrija tal situación en un plazo no mayor de 48 horas, en caso contrario, deberá retirar, suprimir o borrar dicho anuncio.

@@ -1,0 +1,2 @@
+Artículo 45. De la Denominación e Identificación de las Vías Públicas, Parques, Plazas, Jardines y Demás Espacios de Uso Común o Bienes Públicos
+Es privativo del Ayuntamiento la denominación e identificación de las vías públicas, parques, plazas, jardines y demás espacios de uso común o bienes públicos, por lo que queda estrictamente prohibido y sujeto a sanción, el que los particulares alteren las placas de nomenclatura o coloquen placas con nombre no autorizados.

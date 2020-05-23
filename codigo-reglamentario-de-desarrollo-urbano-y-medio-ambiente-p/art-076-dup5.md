@@ -1,0 +1,2 @@
+Artículo 76. Los espacios destinados a la publicidad en mobiliario.
+Los espacios destinados para la publicidad en el mobiliario urbano, serán determinados de acuerdo al diseño, dimensiones y ubicación del mueble, mismos que serán analizados, evaluados y, en su caso, aprobados por el Ayuntamiento en apego a lo establecido en el presente Libro y demás disposiciones jurídicas, administrativas y técnicas aplicables.

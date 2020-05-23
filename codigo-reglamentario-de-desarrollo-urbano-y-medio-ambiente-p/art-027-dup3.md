@@ -1,0 +1,2 @@
+Artículo 27. Improcedencia del (sic) Expedición de Documentos en Vías Públicas de Hecho:
+El Municipio no estará obligado a expedir alineamiento y autorización de uso de suelo, número oficial, licencias de construcción, ni orden o autorización para instalación de servicios públicos para predios con frente a vías públicas de hecho, o aquéllas que se presuman como tales, si éstas no se ajustan a la planificación oficial y cumplen con lo que se establece en este Libro Tercero. De las Construcciones.

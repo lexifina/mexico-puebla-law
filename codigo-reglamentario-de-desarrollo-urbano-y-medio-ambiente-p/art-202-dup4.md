@@ -1,0 +1,2 @@
+Artículo 202. Cuando se desvirtúa o altera el contexto.
+Existe contaminación visual por alteración de la imagen urbana cuando cualquier anuncio, instalación o estructura que contenga algún tipo de publicidad desvirtúe o altere el contexto arquitectónico o fisonomía urbana de alguna zona o edificación en lo particular, oculte los trazos característicos de la fachada, desvirtúe la composición o el carácter del lugar donde se instale o coloque, así como la afectación del sentido de la vista por intensidad lumínica.

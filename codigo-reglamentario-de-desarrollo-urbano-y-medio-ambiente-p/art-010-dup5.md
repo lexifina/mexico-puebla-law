@@ -1,0 +1,2 @@
+Artículo 10. La relevancia de manifestaciones culturales.
+El patrimonio Cultural Edificado del Municipio es el conjunto de manifestaciones producto de la obra del hombre, que contengan relevancia histórica, estética, paisajística, arquitectónica, urbanística, artística, literaria, pictográfica, tradicional, etnológica, científica, tecnológica e intelectual para la sociedad, en los términos de su determinación.

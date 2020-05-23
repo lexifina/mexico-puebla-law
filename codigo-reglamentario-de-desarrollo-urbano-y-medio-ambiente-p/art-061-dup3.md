@@ -1,0 +1,2 @@
+Artículo 61. De las Autorizaciones para las Instalaciones de Alumbrado Público
+La autorización para realizar instalaciones de alumbrado público en subdivisión de lotes hasta 10 unidades, la solicitará ante la DADU por parte del propietario, por si o por medio de apoderado y adjuntará 2 copias de la lotificación propuesta, indicado trazo y ancho de calles, banquetas y áreas para parques públicos y el proyecto de alumbrado.

@@ -1,0 +1,5 @@
+Artículo 84. Clasificación de los desarrollos en condominio por su tipo de construcción
+Con relación a su tipo de construcción los condominios se pueden clasificar en:
+I. Condominio vertical: es aquel que se encuentra edificado en varios niveles, en un solo terreno común, con unidades de propiedad exclusiva y con elementos comunes de conformidad en lo establecido en la regulación correspondiente, pero sujetos al Código Reglamentario y el PDUM respecto del uso de suelo, densidad de población coeficientes de ocupación y utilización del suelo;
+II. Condominio Horizontal: Es aquél que se construye con elementos horizontales, pudiendo o no compartir la estructura y los demás elementos medianeros; o el que se desarrolla sobre un terreno o inmueble con equipamiento e infraestructura urbana teniendo el condómino en ambos casos, derecho de uso exclusivo en la unidad privativa y derecho de copropiedad en las demás áreas comunes, y
+III. Condominio Mixto: Es el que se conforma por condominios horizontales y verticales, pudiendo estar constituidos en grupos de propiedad exclusiva.

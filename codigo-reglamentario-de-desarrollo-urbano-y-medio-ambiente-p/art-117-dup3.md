@@ -1,0 +1,3 @@
+Artículo 117. De los Usos del Suelo No Contemplados en el Programa Municipal de Desarrollo Urbano de San Andrés Cholula
+Los usos que no estén expresamente contemplados en la Tabla de Compatibilidades derivada del Programa Municipal de Desarrollo Urbano de San Andrés Cholula vigente se considerarán como condicionados, quedando sujetos a lo dispuesto por este Ordenamiento.
+Las resoluciones definitivas deberán estar fundadas y motivadas en forma clara, concisa y congruente con lo peticionado, y con los dictámenes que se hayan emitido por otra dependencia o institución para esta resolución, y se expondrán los puntos resolutivos sobre las cuestiones sometidas a consideración de la autoridad, así como aquellas otras derivadas del expediente.

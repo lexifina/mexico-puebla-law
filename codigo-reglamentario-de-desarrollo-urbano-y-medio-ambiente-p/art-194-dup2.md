@@ -1,0 +1,12 @@
+CAPÍTULO II
+EDIFICIOS PARA HABITACIÓN
+Artículo 194. Edificios Destinados a Habitación
+En los edificios destinados a habitación, se deberán dejar ciertas superficies libres o patios, destinados a proporcionar luz y ventilación, a partir del nivel en que se desplanten los pisos, pasillos, corredores o escaleras.
+En las (sic) inmuebles no mayores de 15 m., de atura (sic), menores de 1,000 m2 de construcción y que no vayan a ser ocupados por más de 250 personas, los patios que sirvan a piezas habitables (dormitorios, salas y comedores), tendrán como dimensión mínima de 5 m2 tratándose de altura de 5 metros en caso de alturas mayores la dimensión mínima de cualquiera de sus lados, nunca será inferior a 2/5 de altura del paramento de los muros, lo anterior tendrá una tolerancia máxima del 20% menor de la dimensión señalada, siempre que la reducción de una de las medidas se incremente en la otra un 20%.
+Tratándose de patios que sirvan a piezas no habitables, la dimensión mínima del patio será de 3 m2, tratándose de alturas hasta 3 metros, en caso de alturas mayores la dimensión mínima de cualquiera de sus lados nunca será inferior a 1/3 de la altura del paramento de los muros, lo anterior tendrá una tolerancia máxima de 25% menor de la dimensión señalada, siempre que la reducción de una de las medidas se incremente en la otra un 25%.
+I. En caso de edificios de departamentos, multifamiliares o condominios habitacionales, se acondicionarán 2 departamentos por cada 50 y se aplicará el 2% cuando sean más de 50 viviendas, para ser utilizados por personas con discapacidad y deberán estar ubicados en planta baja:
+a) La puerta de acceso, así como las interiores tendrán un ancho no menor de 90 milímetros y en caso de puertas dobles, cada hoja deberá tener esta dimensión.
+b) En el acceso al conjunto habitacional o edificio, así como todo el trayecto hasta la vivienda, deberán contar con las rampas necesarias para salvar desniveles, las que no tendrán una pendiente mayor al 8%.
+c) Las perillas de las puertas y ventanas tendrán una altura máxima sobre el nivel del piso de 1.00 metro. Toda escalinata, acceso y/o andador, deberá contar con pasamanos para niños y adultos.
+d) Los controles generales de energía eléctrica, así como los apagadores de luz, tendrán una altura máxima de 1.20 metros.
+e) En caso de existir elevador en la vivienda, los controles deben ser identificables para el discapacitado. Se deberán incluir placas de sistema braille en el tablero de control, dentro y fuera de elevadores para señalar los pisos.

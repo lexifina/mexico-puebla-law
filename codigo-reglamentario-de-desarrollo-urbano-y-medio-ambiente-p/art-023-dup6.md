@@ -1,0 +1,2 @@
+Artículo 23. Verificación de bienes, personas o vehículos
+Las dependencias podrán, de conformidad con las disposiciones aplicables, verificar bienes, personas y vehículos de transporte con el objeto de comprobar el cumplimiento de las disposiciones legales contenidas en el presente Código Reglamentario y demás normatividad aplicable, para lo cual se deberán cumplir, en lo conducente, las formalidades previstas para las visitas de verificación.

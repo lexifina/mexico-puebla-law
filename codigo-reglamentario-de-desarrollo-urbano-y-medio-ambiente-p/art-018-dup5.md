@@ -1,0 +1,2 @@
+Artículo 18. Fianza por garantía de trabajos.
+Para los efectos de la restauración, reparación o construcción de bienes inmuebles ubicados dentro de una población o parte de población declarada zona de protección, el Ayuntamiento a través de la Secretaría exigirá de los interesados, fianza que garantice que los trabajos se ejecutarán en términos de la autorización concedida, de acuerdo con lo dispuesto en el artículo que antecede.

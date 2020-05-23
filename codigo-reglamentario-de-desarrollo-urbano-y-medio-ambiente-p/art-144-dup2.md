@@ -1,0 +1,6 @@
+Artículo 144. Perfeccionamiento por compensación con obra
+El perfeccionamiento de las áreas de donación por compensación mediante realización de obras en inmuebles de propiedad del Municipio de San Andrés, se realizará de la siguiente manera:
+I. El fraccionador o desarrollador, deberá presentar la propuesta del proyecto ejecutivo y presupuesto de obra validado por la Dirección de Obras Públicas del Municipio con la que pretende cumplir;
+II. La Secretaría emitirá el Dictamen de autorización en el cual se especificarán los plazos de ejecución y entrega de la obra, al igual que la garantía por cumplimiento de esta, equivalente al 100% de los trabajos, y
+III. El plazo máximo para la entrega de los trabajos de la obra, será de 12 meses a partir de la autorización de la Licencia de Fraccionamientos y obras de urbanización. En caso contrario, el propietario, fraccionador o desarrollador se hará acreedor a una sanción según se indica en el Título Decimo Segundo.
+Cabe señalar que los trabajos de construcción de las obras por compensación para áreas ecológicas y de equipamiento urbano, deberán cumplir con las normas y los trámites aplicables para la ejecución de estos. Dicho procedimiento tendrá un respaldo mediante convenio por compensación avalado por Cabildo.

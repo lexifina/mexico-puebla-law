@@ -1,0 +1,2 @@
+Artículo 34. Arbolado obligatorio
+Es obligatorio el arbolado de las áreas verdes, debiendo considerar preferentemente el sembrado de especies naturales originarias de la zona o las adecuadas, dependiendo las características físicas, climáticas, y el tamaño de la zona en que se siembren, para lo cual se podrá considerar el Anexo de Paleta vegetal con las especies recomendadas establecidas en el Libro Primero de este Código Reglamentario.

@@ -1,0 +1,2 @@
+Artículo 23. La Accesibilidad en la Arquitectura y Diseño Urbano
+La accesibilidad universal en la arquitectura y diseño urbano es el conjunto de características que debe disponer una edificación, espacio público o medio de transporte para ser utilizado en condiciones de comodidad, seguridad, igualdad, autonomía e inclusión para las personas principalmente las personas con discapacidad y con movilidad limitada.

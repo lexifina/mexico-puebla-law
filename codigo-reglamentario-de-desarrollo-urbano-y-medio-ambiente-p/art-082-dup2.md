@@ -1,0 +1,2 @@
+Artículo 82. De las obras de urbanización y edificación de los desarrollos en condominio
+Las obras de urbanización y de edificación de los desarrollos en régimen de propiedad y condominio se sujetarán a lo establecido en Título Séptimo de este Libro y las del Libro Tercero de este Código Reglamentario; así como con las disposiciones que al efecto se establezcan por los organismos de los servicios públicos correspondientes.

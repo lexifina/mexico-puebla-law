@@ -1,0 +1,3 @@
+Artículo 48. Conmutación de multas
+Las autoridades competentes, por sí o a solicitud del infractor, podrán otorgar a éste, la opción para pagar la multa o realizar inversiones equivalentes en el diseño y ejecución de proyectos o en la adquisición e instalación de equipo en las materias competencia del presente Código Reglamentario, siempre y cuando se garanticen las obligaciones del infractor y la autoridad justifique plenamente su decisión.
+Para tal efecto, anualmente se publicarán las disposiciones administrativas necesarias que establezcan las áreas y proyectos prioritarios para el Municipio, a las cuales se deberán apegar las inversiones a que se refiere el artículo anterior.

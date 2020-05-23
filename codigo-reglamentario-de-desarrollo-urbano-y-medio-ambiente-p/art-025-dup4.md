@@ -1,0 +1,2 @@
+Artículo 25. Acceso y Uso de Espacios
+La ruta accesible es la integración de diversos elementos conectados entre sí para permitir el acceso y uso de espacios o servicios en un inmueble, edificación, predio, espacio público, espacio exterior. Para su diseño se debe considerar la ruta más corta, la que presente menos obstáculos y la que conecte los servicios principales en espacios exteriores o interiores.

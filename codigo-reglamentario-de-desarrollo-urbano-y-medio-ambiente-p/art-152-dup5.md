@@ -1,0 +1,5 @@
+Artículo 152. De las pantallas con iluminación o electrónicas.
+Las pantallas con iluminación o electrónicas:
+I. Sólo podrán ubicarse en el exterior de vehículos que porten publicidad, localizándose en espacios que no limiten el libre y seguro movimiento del conductor del vehículo;
+II. El voltaje y amperaje necesarios para su operación, no deberán afectar el funcionamiento del vehículo y deberán contar además con un control de encendido y apagado independiente, de fácil acceso y con fusible como protección. Deberá preverse que la instalación eléctrica permanezca protegida, aislada y oculta, y
+III. Su sistema de fijación deberá evitar causar riesgos de seguridad a los usuarios, ya sea por su desprendimiento o por problemas eléctricos y tampoco podrán ser utilizadas como plataforma o base.

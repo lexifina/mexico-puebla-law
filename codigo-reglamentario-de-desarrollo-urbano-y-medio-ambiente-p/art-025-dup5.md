@@ -1,0 +1,2 @@
+Artículo 25. Las características tipológicas con el entorno.
+Todas las construcciones nuevas que se realicen dentro de los polígonos denominados "Zonas de Protección", deberán integrarse y armonizar con las características tipológicas de sus colindantes, en dimensiones y proporciones y deberán sujetarse a los lineamientos de inmuebles Patrimoniales, así mismo sus nuevos usos estarán determinados por las características físicas, formales y funcionales del inmueble.

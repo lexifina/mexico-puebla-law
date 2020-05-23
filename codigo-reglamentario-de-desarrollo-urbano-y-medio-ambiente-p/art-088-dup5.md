@@ -1,0 +1,3 @@
+Artículo 88. La poda, derribo y trasplante de árboles.
+La poda, derribo y trasplante de árboles en los espacios públicos municipales se realizarán en términos de los Lineamientos Ambientales y únicamente por arboristas certificados de la Dirección de Servicios Públicos o empresas certificadas que hayan obtenido la concesión de dicho servicio. El tratamiento de árboles en predios privados deberá realizarse por arboristas expertos, previo dictamen del estado del elemento arbóreo.
+Los lineamientos relacionados a la flora, se deberán consultar el Libro Primero de la Protección al Ambiente y el Desarrollo Sustentable, donde se anexa la paleta de especies vegetales.

@@ -1,0 +1,2 @@
+Artículo 174. Cercar lotes sin construcción
+En todos los fraccionamientos, divisiones, subdivisiones, segregaciones, fusiones, lotificaciones con apertura de vialidad interna, relotificaciones y modificaciones de los inmuebles, así como de los desarrollos en régimen de propiedad y condominio, los propietarios de los lotes sin construcción en los centros de población procurarán cercar su propiedad conservando y preservando el medio ambiente, los árboles y en general las áreas verdes de los mismos.

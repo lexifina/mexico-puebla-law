@@ -1,0 +1,2 @@
+Artículo 49. Definición de segregación
+Se comprende por segregación, la partición de un predio en dos o más fracciones de terreno que realiza el propietario para su venta o donación, reservándose para sí, la superficie restante, la cual no se podrá vender, dividir, realizar cambio de propietario o llevar a cabo cualquier acto legal y/o urbanístico sobre esta superficie, sin contar con la autorización correspondiente.

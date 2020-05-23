@@ -1,0 +1,2 @@
+Artículo 70. Definición de fraccionador o desarrollador
+Se entenderá por Fraccionador y/o desarrollador a la persona física o jurídica, incluido el propietario, que lleva a cabo actos relacionados con el fraccionamiento, división, subdivisión, lotificación de terrenos o realiza alguna modificación, obra, desarrollo en condominio o conjuntos urbanos, incluyendo la ejecución de obras de urbanización y equipamiento urbano.

@@ -1,0 +1,3 @@
+Artículo 43. Definición de servidumbre legal de paso
+Las situaciones relativas a las servidumbres legales de paso se regirán de acuerdo con lo establecido en el Capítulo XII. Servidumbres, del Libro Tercero Bienes del Código Civil para el Estado Libre y Soberano de Puebla. De acuerdo con la referida legislación se entiende como servidumbre al derecho real, impuesto sobre un inmueble, para servicio de otro, perteneciente a distinto dueño y en provecho de éste.
+Las servidumbres son inseparables del inmueble al que pertenecen y subsisten a pesar del cambio de dueño, se pueden derivar de la ley, de usucapión y por acto unilateral o plurilateral.

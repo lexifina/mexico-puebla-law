@@ -1,0 +1,2 @@
+Artículo 56. El INAH en materia de vestigios arqueológicos.
+En el caso de hallazgo de vestigios arqueológicos, históricos, paleontológicos y culturales el responsable de la obra y el Ayuntamiento darán cumplimiento a lo estipulado en la Ley Federal sobre Monumentos y Zonas Arqueológicas, artísticos e históricos, así como la normatividad vigente en la materia. En apoyo el INAH y a las dependencias competentes con respecto al descubrimiento reportado, el Ayuntamiento tomara las medidas necesarias para asegurar provisionalmente la integridad de los vestigios.

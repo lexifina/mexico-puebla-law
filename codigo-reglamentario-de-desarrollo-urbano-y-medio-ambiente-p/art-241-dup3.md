@@ -1,0 +1,2 @@
+Artículo 241. Del costo por la visita de inspección ocular.
+En caso de ser necesario se requerirá de una visita de inspección ocular al lugar o lugares donde se solicite la colocación de anuncios, o dictamen de Imagen Urbana la cual tendrá un costo extra sin que esto represente aceptación o compromiso para la obtención de dichas licencias. En tal cuenta el costo de dicha visita deberá ser cubierto por el interesado.

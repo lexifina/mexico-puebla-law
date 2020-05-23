@@ -1,0 +1,2 @@
+Artículo 91. De los Estudios de Impacto Urbano
+Cuando existan solicitudes del sector público o privado para la redensificación de un uso habitacional tanto en edificaciones existentes como para predios baldíos, para su autorización, el interesado deberá presentar al DADU para su aprobación debidamente fundado técnicamente un Estudio de Impacto Urbano y aquellos estudios y factibilidades de servicios, equipamiento e infraestructura que se considere necesarios para que puedan ser analizados como factibles.

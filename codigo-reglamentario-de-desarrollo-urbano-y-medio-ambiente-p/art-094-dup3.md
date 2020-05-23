@@ -1,0 +1,2 @@
+Artículo 94. De las Constancias de Uso del Suelo
+LA CONSTANCIA DE USO DE SUELO. - Es el documento que se emite para inmuebles ya edificados con antigüedad de 5 años o más para efectos exclusivamente de carácter notarial, en el que se indica la densidad de vivienda por Hectárea, los Coeficientes de Ocupación y Utilización del Suelo, el uso o destino asignado por el Programa Municipal de Desarrollo Urbano Sustentable de San Andrés Cholula vigente consignados en la Carta Urbana correspondiente.

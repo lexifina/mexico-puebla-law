@@ -1,0 +1,3 @@
+[N. DE E. VÉASE IMAGEN EN EL P.O. DE 22 DE MAYO DE 2020, PÁGINA 367.]
+Artículo 167. Del Resguardo de Vehículos para Usos Comerciales
+Para los usos comerciales o de servicios que requieran del servicio de valet parking o recepción y entrega de vehículos, el propietario o prestador del servicio deberá contar con un espacio para el resguardo de los vehículos al interior de un inmueble, quedando prohibido que realicen el estacionamiento de vehículos en las vías públicas. En el caso que no cumpla con el número de cajones requeridos por el uso de suelo específico que se trate, se deberá cumplir con lo establecido en el Artículo anterior.

@@ -1,0 +1,2 @@
+Artículo 9. De la Política de Movilidad
+Las políticas y programas para la movilidad serán parte del proceso de planeación del territorio del municipio; favoreciendo la accesibilidad universal de los habitantes a los servicios y satisfactores urbanos. Las políticas de movilidad deberán asegurar que las personas puedan elegir libremente la forma de trasladarse a fin de acceder a los bienes, servicios y oportunidades que ofrecen sus centros de población.

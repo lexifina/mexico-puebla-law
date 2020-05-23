@@ -1,0 +1,2 @@
+Artículo 128. Definición de área de donación
+El área de donación es la superficie de terreno que los fraccionadores y/o desarrolladores independientemente de su régimen de propiedad, deberán donar a título gratuito al Ayuntamiento para destinarlas de manera permanente a áreas ecológicas en un 50% y de equipamiento urbano de uso público en el restante 50% de conformidad con lo que se establezca en el Programas (sic) de desarrollo urbano vigente.

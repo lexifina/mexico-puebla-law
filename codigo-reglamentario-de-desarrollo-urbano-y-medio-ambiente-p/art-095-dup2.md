@@ -1,0 +1,3 @@
+Artículo 95. De los convenios de conurbación
+Los Municipios podrán celebrar convenios de conurbación en términos de los dispuesto por la Ley de Desarrollo Urbano Sustentable del Estado de Puebla, con la finalidad de regular el caso de un predio que abarque el espacio territorial de dos o más municipios y se hará un estudio del proyecto de soluciones urbanísticas, atendiendo las necesidades presentes o futuras del predio a fraccionar o desarrollar.
+Asimismo, se consultarán las autoridades u organismos competentes para los aspectos relacionados con el abastecimiento de agua potable, drenaje pluvial y saneamiento; las facilidades de desagüe y las obras de conducción o distribución eléctrica necesarias.

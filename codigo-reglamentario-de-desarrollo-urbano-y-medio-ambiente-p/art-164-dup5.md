@@ -1,0 +1,2 @@
+Artículo 164. De la prohibición de anuncios en las Zonas de Protección.
+Dentro de los polígonos denominados "Zonas de Protección", queda prohibida la instalación de anuncios en los postes del alumbrado público, y en todos aquellos elementos urbano arquitectónicos, artísticos o de carácter ambiental, así como en el radio antes señalado, además también queda prohibida la colocación de anuncios de proporciones mayores a 7 metros cuadrados o que rebasen los 10 metros de altura. Siempre y cuando sean permitidos conforme a la reglamentación de este Libro.

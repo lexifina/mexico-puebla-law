@@ -1,0 +1,2 @@
+Artículo 2. Se entenderá por Código Reglamentario de Desarrollo Urbano Sustentable del Municipio de San Andrés Cholula Puebla
+Conforme al objeto de este Código Reglamentario, cuando alguna ley u otro ordenamiento jurídico mencionen a determinado Reglamento o Reglamentación Municipal, se entenderá que se refiere al presente Ordenamiento, en sus correspondientes Libros, Títulos, Capítulos, Secciones o Artículos.

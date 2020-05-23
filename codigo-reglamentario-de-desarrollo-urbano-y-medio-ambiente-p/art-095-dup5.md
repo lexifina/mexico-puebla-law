@@ -1,0 +1,2 @@
+Artículo 95. El diseño en los anuncios.
+El diseño en los anuncios no incluirá texto alguno, ni imágenes o elementos que sirvan como propaganda política, comercial, religiosa que inciten a la violencia, promuevan o provoquen conductas ilícitas o faltas administrativas, discriminación de razas, grupos o condición social, contengan mensajes o lenguajes existas (sic) o discriminatorios por razón de género y que atenten contra los derechos humanos.

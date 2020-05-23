@@ -1,0 +1,2 @@
+Artículo 129. De la Prohibición de Construcción en Zonas Federales y de Riesgo
+PROHIBICIÓN DE CONSTRUCCIÓN EN ZONAS FEDERALES Y DE RIESGO. Se prohíbe todo tipo de construcción en las zonas federales y/o de alto riesgo de acuerdo a lo estipulado en los dictámenes de delimitación emitidos por las instancias federales, estatales y/o municipales en el ámbito de su competencia, definidas en la demarcación de la restricción y/o afectación en su caso.

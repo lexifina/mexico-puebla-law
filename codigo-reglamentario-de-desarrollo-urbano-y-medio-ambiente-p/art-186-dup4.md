@@ -1,0 +1,2 @@
+Artículo 186. Del Señalamiento Preventivo para Movilidad Peatonal y Ciclista
+Los señalamientos verticales preventivos para la movilidad peatonal y ciclista tienen por objeto prevenir a los usuarios del espacio público respecto a su tránsito en las franjas de circulación destinadas para cada uno, previendo la existencia de algún peligro potencial en el camino y su naturaleza. Se aplicarán como complemento de los dispositivos para el tránsito vehicular establecidos en el Manual de Señalización Vial y Dispositivos de Seguridad de la Secretaría de Comunicaciones y Transportes.

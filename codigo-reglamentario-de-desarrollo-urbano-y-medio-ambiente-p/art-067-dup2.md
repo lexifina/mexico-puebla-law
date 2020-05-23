@@ -1,0 +1,2 @@
+Artículo 67. Regularización en caso de incumplimiento de dimensiones y lote mínimo
+En aquellos casos en los que no se cumpla con lo indicado en el PMDUS respecto a las dimensiones del lote mínimo y/o a las secciones viales establecidas en el Título Tercero, se podrán regularizar tales lotificaciones cubriendo el monto de la sanción correspondiente dispuesta en el Título Décimo Primero de este Libro.

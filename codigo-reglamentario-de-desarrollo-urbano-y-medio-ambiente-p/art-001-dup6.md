@@ -1,0 +1,25 @@
+[N. DE E. VÉASE ANEXO EN EL P.O. DE 22 DE MAYO DE 2020, PÁGINA 498.]
+LIBRO SEXTO
+PROCEDIMIENTOS, DE INSPECCION Y VIGILANCIA, MEDIDAS DE SEGURIDAD Y SANCIONES
+ÍNDICE
+TÍTULO PRIMERO. DISPOSICIONES GENERALESArticulos
+CAPÍTULO I. NORMAS PRELIMINARES1 al 3
+CAPÍTULO II. DE LAS ATRIBUCIONES4 al 8
+TÍTULO SEGUNDO. DE LA INSPECCIÓN Y VIGILANCIA
+CAPÍTULO ÚNICO9 al 23
+TÍTULO TERCERO. DE LAS MEDIDAS DE SEGURIDAD
+Y SANCIONES
+CAPÍTULO I. DEL LAS MEDIDAS DE SEGURIDAD24 al 30
+CAPÍTULO II. DE LAS SANCIONES ADMINISTRATIVAS31 al 50
+CAPÍTULO III. DE LA CLAUSURA51 al 55
+CAPÍTULO IV. DEL RECURSO DE INCONFORMIDAD56
+TÍTULO CUARTO. DE LA DENUNCIA CIUDADANA
+CAPÍTULO ÚNICO57 al 63
+LIBRO SEXTO
+DEL PROCEDIMIENTO DE INSPECCIÓN Y VIGILANCIA, MEDIDAS DE SEGURIDAD Y SANCIONES
+TÍTULO PRIMERO
+DISPOSICIONES GENERALES
+CAPÍTULO I
+NORMAS PRELIMINARES
+Artículo 1. Ámbito de aplicación
+Las disposiciones del presente Libro se aplicarán a la realización de actos de inspección y vigilancia, ejecución de medidas de seguridad, determinación de sanciones administrativas, procedimientos y recursos administrativos; así como la presentación de la denuncia ciudadana, cuando se trate de asuntos de competencia municipal regulados por el presente Código Reglamentario y demás disposiciones jurídicas aplicables

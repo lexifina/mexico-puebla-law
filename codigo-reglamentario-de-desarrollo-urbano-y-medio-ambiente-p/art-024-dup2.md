@@ -1,0 +1,2 @@
+Artículo 24. Consideración de los Libros de este Código Reglamentario
+Todas las lotificaciones con apertura de vialidad, relotificaciones, fraccionamientos o desarrollos independientemente de su régimen de propiedad quedarán sujetas para su autorización, al cumplimiento de los criterios de medio ambiente, construcción, movilidad e imagen urbana establecidas en los libros que componen este Código Reglamentario.

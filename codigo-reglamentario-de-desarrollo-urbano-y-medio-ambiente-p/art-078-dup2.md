@@ -1,0 +1,5 @@
+Artículo 78. Clasificación de los fraccionamientos por su modo de ejecución
+Los fraccionamientos, por su modo de ejecución, podrán ser:
+I. De urbanización inmediata: Son aquéllos en los que el fraccionador, debe llevar a efecto la totalidad de las obras de urbanización y la instalación de los servicios públicos a que queda obligado, dentro del término que establezca la autoridad competente a partir de la fecha de autorización; salvo que por causas ajenas al fraccionador o a la autoridad municipal no se cumpla con dicho término;
+II. De urbanización por etapas: Son aquéllos en los que el fraccionador, puede efectuar las obras de urbanización y la instalación de los servicios públicos por etapas claramente determinadas al momento de su autorización, las cuales deberá concluir íntegramente, en forma y tiempo, antes de iniciar con la etapa sucesiva, y
+III. De urbanización progresiva: Son aquellos en los que se realizan de manera gradual, las obras de urbanización y la instalación de los servicios públicos y solo podrá llevarse a cabo por las instituciones públicas competentes.

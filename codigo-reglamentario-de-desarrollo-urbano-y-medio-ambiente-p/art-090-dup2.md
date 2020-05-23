@@ -1,0 +1,2 @@
+Artículo 90. Presentación del expediente para revisión de los requisitos
+La solicitud con los requisitos establecidos en los artículos anteriores, serán presentados en el Departamento de Fraccionamientos para la revisión de los documentos respectivos; en caso de presentar alguna irregularidad u omisión de requisitos, legalmente establecidos, se hará la prevención correspondiente al interesado para que lo subsane.

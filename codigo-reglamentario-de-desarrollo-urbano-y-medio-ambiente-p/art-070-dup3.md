@@ -1,0 +1,4 @@
+Artículo 70. Información requerida
+I. Documento que acredite la propiedad, debidamente inscrito en el Registro Público de la Propiedad y del Comercio;
+II. Ubicación del predio, con referencia en coordenadas UTM, realizado por un profesional en el ramo, con cedula profesional y/o visita de inspección del predio; en caso de visita de predio, esta debe ser franca y sin limitaciones, cualquier contratiempo, impedimento, falta de conocimiento de localización del predio o problemática para el acceso al mismo, será causa de negativa de gestión del expediente respectivo, y
+III. Copia del pago de Impuesto Predial vigente al año fiscal en curso, o constancia de no adeudo o impresión de pantalla de la ventanilla del Departamento de Impuesto Predial, indicando que la cuenta predial se encuentra en ceros.

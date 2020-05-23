@@ -1,0 +1,59 @@
+Artículo 6. De la Dirección de Administración del Desarrollo Urbano
+Al frente de cada Dirección habrá un Titular, y en específico, para el presente Ordenamiento, será la Dirección de Administración del Desarrollo Urbano, la que para efectos de este Ordenamiento se les (sic) llamará: la DADU, a quien además de lo establecido en el presente Ordenamiento, corresponderá el ejercicio de las siguientes atribuciones:
+II (SIC). Planear, programar, organizar, controlar y dirigir las actividades de su Dirección conforme al Reglamento Interior de la Secretaría de Desarrollo Urbano Sustentable;
+III. Acordar con el Secretario el despacho de los asuntos de su competencia e informarle las decisiones que emita;
+IV. Someter a la aprobación del Secretario los proyectos, planes, programas o acciones de su competencia, para el trámite de autorización correspondiente;
+V. Promover los proyectos, estudios, investigaciones y diagnósticos que se elaboren en los Departamentos de su adscripción;
+VI. Desempeñar las comisiones que el Secretario le encomiende y mantenerlo informado de su desarrollo;
+VII. Proponer al Secretario la celebración de convenios de coordinación o colaboración con Organismos Internacionales, Autoridades Federales, Estatales o Municipales, sectores tanto públicos como sociales y privados, así como Organismos no Gubernamentales;
+VIII. Proponer al Secretario los proyectos de Reglamentos, Decretos, Acuerdos, Reformas, Convenios, Lineamientos y cualquier otro ordenamiento jurídico competencia de la Secretaría;
+IX. Participar, en el ámbito de su competencia, previa designación del Secretario, en las comisiones, comités, juntas, consejos y otras figuras similares, manteniéndolo informado sobre el desarrollo de las mismas;
+X. Coadyuvar en el ámbito de su competencia en el suministro de información y datos técnicos que le soliciten otras Dependencias y Entidades de acuerdo a la normatividad en vigor y a las políticas que emita el Secretario;
+XI. Coordinarse con las demás Unidades Administrativas de la administración pública municipal para el mejor desempeño de los asuntos de su competencia;
+XII. Expedir y modificar los acuerdos, resoluciones, circulares y disposiciones administrativas que procedan para el debido cumplimiento de las atribuciones de las propias Direcciones;
+XIII. Coadyuvar al cumplimiento de las disposiciones legales contenidas en la Ley de Responsabilidades de los Servidores Públicos del Estado de Puebla, por el personal adscrito a su Dirección;
+XIV. Autorizar y rubricar la documentación que se elabora en los Departamentos a su cargo;
+XV. Autorizar la elaboración de la cuantificación de las autorizaciones que se emitan en la Dirección;
+XVI. Suscribir los documentos relativos al ejercicio de sus atribuciones y aquellos que le sean señalados por delegación o que les correspondan por suplencia;
+XVII. Vigilar que en los asuntos de la Dirección se cumplan con todas las formalidades legales, con las previsiones de los ordenamientos jurídicos y disposiciones administrativas que resulten aplicables;
+XVIII. Verificar que los trabajos de los Departamentos a su cargo se cumplan en tiempo y forma requeridos;
+XIX. Implementar sistemas eficientes y expeditos para que se cumpla con la correcta aplicación de la legislación aplicable vigente en materia de desarrollo urbano, ordenamiento territorial y sustentabilidad;
+XX. Promover proyectos y obras que permitan la movilidad, libre tránsito, el uso y acceso de las personas con discapacidad, por sí o con ayuda de cualquier forma de asistencia humana, animal o cualquier otro medio técnico o electrónico que la ciencia aporte, con seguridad a los espacios públicos y privados; así como la promoción para adecuar facilidades urbanísticas y arquitectónicas de acuerdo a los principios de accesibilidad universal, en términos de (sic) legislación aplicable vigente en materia de discapacidad;
+XXI. Instrumentar acciones de mejora continua de la calidad, de acuerdo a la normatividad en la materia;
+XXII. Proponer al Secretario, las medidas de modernización y simplificación administrativa, susceptibles de ser aplicadas en los Departamentos a su cargo, en coordinación con las instancias correspondientes;
+XXIII. Propiciar la incorporación de un sistema digital que permita la modernización de los sistemas de trabajo, la agilización de trámites, confiabilidad de respuestas y la eliminación de la discrecionalidad en las decisiones;
+XXIV. Implementar los mecanismos necesarios que aseguren la transparencia en la operación de la propia Dirección;
+XXV. Proponer, coordinar y participar en la integración y actualización de manuales de organización, procedimientos y operación de la Dirección a su cargo, involucrando a los Departamentos adscritos a la misma, para su posterior aprobación y registro de la Contraloría Municipal;
+XXVI. Coadyuvar con la Dirección Jurídica para solventar y dar cumplimiento a lo establecido en el Artículo 51, fracción XXII del Reglamento Interno de la Secretaría, siendo estas, las siguientes:
+a) Vigilar que se observe por las Direcciones y Jefaturas la legislación aplicable en la Dependencia;
+b) Ser órgano de consulta, asesoría e investigación jurídica, fijando criterios de interpretación y aplicación, procurando la difusión y vigilancia en el respeto y cumplimiento de las normas jurídicas que regulan el funcionamiento de la Secretaría;
+c) Asesorar y apoyar la toma de decisiones de las Direcciones, Departamentos y personal técnico y administrativo de la Dependencia, en la construcción de documentos de naturaleza jurídica sometidos a su consideración y análisis;
+d) Procurar el cumplimiento de formalidades y requisitos legales, y en su caso, solicitar la conclusión de los procedimientos y trámites que se realicen en la Secretaría;
+e) Intervenir en la formulación de anteproyectos de Leyes, Reglamentos, Acuerdos, Decretos, Circulares, Convenios, Contratos, Resoluciones y demás disposiciones legales, en los que la Secretaría intervenga;
+f) Proponer y aplicar las políticas en materia normativa de la Secretaría;
+g) Intervenir en los procedimientos y juicios en los que sean señalados o participen el Secretario, Directores, Jefes de Departamento, con motivo del ejercicio de sus facultades, conjunta o separadamente, coordinando esta intervención con las Unidades Administrativas de la Secretaría y con la Secretaría de Gobernación y Asuntos Jurídicos del Ayuntamiento;
+h) Vigilar la aplicación de leyes en aspectos relativos a concesiones, autorizaciones, licencias, dictámenes y permisos que sean competencia de la Secretaría, que sean sometidos a su consideración y análisis; así mismo, iniciar los procedimientos administrativos seguidos en forma de juicio en aquellos casos en que se requiera hacer cumplir los ordenamientos competencia de la Dependencia, de acuerdo al Reglamento específico, siempre con arreglo al debido proceso legal, comunicándolo oportunamente al titular de la Dependencia y Unidades Administrativas;
+i) Asesorar en procedimientos de orden administrativo competencia de la Secretaría, conforme a las leyes aplicables en la materia;
+j) Proponer y coordinar en la actualización de los Manuales de Organización y procedimientos de la Dirección a su cargo, con la participación de los Jefes de Departamento de la misma;
+k) Ser enlace que coadyuve en los procedimientos que se substancien ante la Sindicatura Municipal, Secretaría de Gobernación y Asuntos Jurídicos y Secretaría del Ayuntamiento;
+l) Coadyuvar en el cumplimiento de disposiciones legales en materia de la Ley de Responsabilidades de los Servidores Públicos del Estado de Puebla y promover su aplicación en la Dependencia;
+m) Coadyuvar con la Sindicatura Municipal en asuntos de las Direcciones y Jefaturas de la Secretaría, para realizar los informes a que se refiere el Artículo 100 de la Ley Orgánica Municipal;
+n) Vigilar el cabal cumplimiento de sentencias, requerimientos, peticiones e información solicitada por autoridad Federal, Estatal o Municipal, solicitando lo conducente a las distintas Áreas de la Dependencia, previo acuerdo con el Secretario;
+o) Vigilar cabalmente que las visitas de inspección en materia de desarrollo urbano, gestión territorial y sustentabilidad cumplan con la legislación aplicable;
+p) Coadyuvar con la Sindicatura Municipal y la Secretaría de Gobernación y Asuntos Jurídicos, en la formulación de denuncias de hechos, querellas, demandas y trámites que tengan relación con las funciones de la Secretaría;
+q) Requerir oportunamente a Direcciones y Jefaturas, la información y documentación a fin de cumplir cabalmente con lo establecido en este Capítulo;
+r) Autorizar la cuantificación económica de multas, de conformidad con la Ley de Ingresos y demás disposiciones vigentes;
+s) Rubricar las actas que se generen durante el procedimiento de visita, clausura y levantamiento de sellos en obras y acciones que lo ameriten de conformidad con la legislación aplicable vigente;
+t) Coordinar con la Secretaría del Ayuntamiento y la Unidad de Transparencia del Municipio la respuesta, atención y seguimiento oportuno a las solicitudes de información recibidas en los archivos de la Secretaría en consecuencia de la aplicación de las leyes en materia de transparencia y acceso a la información pública y de protección de datos personales;
+u) Elaborar los proyectos que le sean requeridos de acuerdos, circulares, órdenes, resoluciones, actos de orden administrativo, sustentando jurídicamente y corroborando el contenido de la información que rija las relaciones jurídicas que se generen;
+v) Coadyuvar con la Dirección de Innovación y Proyectos Urbanos de la Secretaría las modificaciones a las diferentes normas aplicables en el Municipio, buscando la simplificación de procesos y agilización de trámites, así como vigilar su aplicación;
+w) Coadyuvar en el debido cumplimiento de las determinaciones tomadas conforme a derecho, derivadas de procedimientos seguidos en forma de juicio, substanciados por esta Secretaría, en los que se impongan multas, se ordene retiro de maquinaria, de anuncios publicitarios, de trabajadores y señalamientos, entre otras, así como la demolición de obras de construcción en proceso o terminadas;
+x) Dar respuesta y seguimiento en materia de Transparencia, Acceso a la Información Pública y Protección de Datos Personales cuya vigilancia sea competencia de la Secretaría, y
+y) Las demás que le confieren otras disposiciones legales o le encomiende el Secretario, las que reciba por delegación o coordinación, en términos de los convenios que se suscriban con entidades públicas y privadas, así como aquéllas que le otorgue este ordenamiento a sus Dependencias.
+XXVII. Promover la difusión continúa de la legislación aplicable vigente, con la ciudadanía, Directores Responsables de Obra Municipal y Corresponsables de Obra;
+XXVIII. Solicitar el auxilio de la fuerza pública para hacer cumplir las resoluciones, en términos de la legislación aplicable;
+XXIX. Imponer multas y sanciones por las violaciones a la normatividad vigente aplicable;
+XXX. Suspender o revocar, provisional o definitivamente, las facultades que confiere este Reglamento a los Departamentos, así como el personal técnico y operativo que dependan de este, previo acuerdo con el Secretario;
+XXXI. Revocar los permisos, licencias y las autorizaciones que sean de la competencia de esta Dirección de conformidad a la normatividad aplicable, con asesoría de la Dirección Jurídica de la Secretaría y previo acuerdo con el Secretario;
+XXXII. Previo acuerdo con el Secretario, designar al funcionario que le sustituirá en caso de ausencia temporal, y
+XXXIII. Las demás que le confieran otras disposiciones legales o le asigne el Secretario y las que reciba por delegación o sean coordinadas en términos de los convenios que suscriban con entidades públicas, y las demás que otorguen este Reglamento a sus subalternos.

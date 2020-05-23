@@ -1,0 +1,2 @@
+Artículo 92. De la Determinación del Uso del Suelo Factible o Densificación en Predios comprendidos entre dos Zonas con Usos del Suelo Distinto
+En los casos que por su ubicación un predio tenga definida una parte con un uso de suelo, y la otra en otro uso de suelo, este podrá considerarse factible para el desarrollo urbano y/o densificación, si una superficie mayor al 75 % del predio se ubica en el Área Urbanizable de mayor beneficio.

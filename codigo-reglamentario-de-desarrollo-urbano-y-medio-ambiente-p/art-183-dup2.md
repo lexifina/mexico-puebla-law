@@ -1,0 +1,2 @@
+Artículo 183. Municipalizaciones parciales
+El fraccionador, una vez que obtenga la resolución aprobatoria de las obras de urbanización y equipamiento, deberá tramitar la municipalización del fraccionamiento, sólo en los fraccionamientos urbanizados por etapas se puede municipalizar parcialmente; en tanto no realice este trámite la conservación, mantenimiento y la prestación de servicios públicos corresponderán al fraccionador.

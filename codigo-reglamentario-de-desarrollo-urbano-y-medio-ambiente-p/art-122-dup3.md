@@ -1,0 +1,2 @@
+Artículo 122. Del Procedimiento de Revisión, y en su Caso, Aprobación y Certificación de los Estudios de Impacto Urbano
+Los estudios serán revisados, aprobados y certificados por la DADU, en un plazo no mayor de 15 días hábiles, contados a partir del día siguiente a aquél en que se presente el estudio y se haga el pago correspondiente por concepto de análisis ante la DADU, misma que definirá el nivel de análisis y área de estudio de éste. El costo por la revisión de los Estudios, se establecerá en base a un tabulador previamente autorizado a la DADU.

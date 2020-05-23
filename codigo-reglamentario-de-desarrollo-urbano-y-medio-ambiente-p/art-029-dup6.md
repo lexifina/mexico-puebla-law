@@ -1,0 +1,2 @@
+Artículo 29. Ejecución de medidas de seguridad
+Cuando las autoridades competentes ordenen alguna de las medidas de seguridad previstas en este Código Reglamentario, indicarán al interesado las acciones que deberá llevar a cabo para subsanar las irregularidades que motivaron la imposición de dichas medidas, así como los plazos para su realización, a fin de que una vez cumplidas estas, se ordene el retiro de la medida de seguridad impuesta.

@@ -1,0 +1,2 @@
+Artículo 101. La Dirección y facultad para iniciar procesos administrativos.
+La Dirección de Sustentabilidad y Gestión Urbana tendrá facultades para iniciar procesos administrativos con el objetivo de constatar el estado que guarden los anuncios publicitarios mediante una orden fundada y motivada suscrita por la Dirección y cuyos lineamientos están contenidas en el Libro Sexto de Procedimientos Jurídicos del presente Código Reglamentario.

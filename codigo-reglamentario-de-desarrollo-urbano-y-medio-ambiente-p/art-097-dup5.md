@@ -1,0 +1,2 @@
+Artículo 97. El diseño y elementos estructurales de un anuncio.
+Todos los anuncios y elementos estructurales, eléctricos o mecánicos de éstos, deberán ser diseñados e integrados en un solo elemento formal y adaptarse a la arquitectura del inmueble donde se coloquen, como parte integrante de los edificios y del contorno urbano donde se inscriban, respetando la armonía del entorno o apoyándose en proyectos integrales que ofrezcan una imagen propia y uniforme.

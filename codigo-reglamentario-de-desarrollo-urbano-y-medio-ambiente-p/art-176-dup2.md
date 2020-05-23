@@ -1,0 +1,9 @@
+CAPÍTULO III
+DE LAS GARANTÍAS
+Artículo 176. Tipos de garantías
+El fraccionador y/o desarrollador, deberá constituir las garantías correspondientes en favor del H. Ayuntamiento del Municipio de San Andrés, las cuales quedarán a resguardo de la Tesorería Municipal bajo cualquiera de sus modalidades, especificando plazo y montos, en los casos siguientes:
+I. Garantía inicial por las obras de urbanización.- En un fraccionamiento autorizado a urbanizarse, la garantía se constituirá por el 100% del monto total de la obra antes de iniciar los trabajos, lo que permita garantizar que se lleven a cabo hasta su término;
+II. Garantía por obras de urbanización en etapas.- En un fraccionamiento autorizado a urbanizarse por etapas, la garantía se constituirá antes e iniciar, por el monto correspondiente a las obras pendientes en cada etapa;
+III. Garantía para efectuar operaciones de preventas.- Cuando el fraccionador pretende efectuar operaciones de preventas previas a la terminación del fraccionamiento y/o desarrollo, independientemente de su régimen de propiedad, y la notificación de dicha autorización, el monto de la garantía será por el 100% del total de la ejecución de las obras pendientes de urbanización y en su caso, obras pendientes de construcción. Si ya fue entregada una garantía inicial por el monto total de las obras de urbanización, ésta garantía podrá omitirse;
+IV. Garantía por vicios ocultos y defectos.- Para garantizar los vicios ocultos y defectos de las obras de urbanización realizada una vez concluidos los trabajos, por el monto del 10% del total de las obras de urbanización, y
+V. Garantía por obras por compensación de áreas de donación.- Para garantizar los trabajos de construcción de las obras autorizadas por compensación de áreas de donación, por el monto del 100% del total de las obras.

@@ -1,0 +1,3 @@
+Artículo 17. Designación de testigos en los actos de inspección y vigilancia
+En los casos en que, durante la realización de actos de inspección no fuera posible encontrar en el lugar persona alguna a fin de que está pudiera ser designada como testigo, o ante la negativa de la persona con quien se entienda la diligencia para designarlos o la de los designados para desempeñarse como tales, el inspector deberá asentar esta circunstancia en el acta administrativa que al efecto se levante, sin que ello afecte la validez del acto de inspección.
+En todo caso, quien practique la diligencia podrá designar a los testigos cuando se presenten las circustancias (sic) a que hace referencia el párrafo que antecede.

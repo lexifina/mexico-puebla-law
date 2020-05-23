@@ -1,0 +1,5 @@
+Artículo 131. De los Tipos de Pavimento Podo-Táctiles
+Los pavimentos podo-táctiles se dividen en dos tipos para proporcionar aviso y direccionamiento:
+I. El pavimento de advertencia se utiliza para indicar una zona de alerta o peligro, aproximación a un objeto u obstáculo, cambio de dirección, cambio de nivel y fin de recorrido. Se instalarán en módulos cuadrados con patrones de conos truncados con una altura de 5 mm, con un ancho mínimo de 30.00 x 30.00 cm y máximo de 40.00 x 40.00 cm. Para la aproximación frontal a objetos, se deben colocar tres módulos.
+[N. DE E. VÉASE IMAGEN EN EL P.O. DE 22 DE MAYO DE 2020, PÁGINA 354.]
+II. El pavimento de guía de dirección se utiliza para indicar el recorrido para una persona con discapacidad visual, se compone de barras paralelas a la dirección de marcha separadas entre sí a una distancia mínima de 50 mm. Se instalarán en módulos cuadrados con barras paralelas a la dirección de marcha, con un ancho mínimo de 30.00 x 30.00 cm y máximo de 40.00 x 40.00 cm.

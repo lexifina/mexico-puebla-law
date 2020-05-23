@@ -1,0 +1,3 @@
+Artículo 122. Introducción de servicios por predios de terceros
+En el caso de que se verifique la unión de un fraccionamiento con otras zonas urbanizadas, sea necesario abrir acceso o conducir servicios públicos a través de predios de terceros que no formen parte del terreno por fraccionar y no medie anuencia del propietarios o propietarios respectivos; el Ayuntamiento puede gestionar la expropiación de las superficies necesarias para accesos, vialidades o áreas para la conducción de los servicios públicos; de conformidad con la ley de la materia.
+En este caso el fraccionador quedará obligado a urbanizarlas a su costa y a pagar el importe de la indemnización que corresponda.

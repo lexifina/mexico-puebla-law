@@ -1,0 +1,3 @@
+Artículo 124. Plazos de realización
+Las obras de urbanización deberán concluirse dentro de los plazos establecidos en la licencia correspondiente, salvo que exista un cambio de proyecto o de suspensión previa solicitud ante las autoridades establecidas en este Libro Reglamentario. En caso de incumplimiento injustificado se aplicarán las sanciones correspondientes.
+Las obras de urbanización autorizadas a realizarse por etapas, se iniciarán con la primera, previamente aprobada, debiendo al igual que las demás concluirse íntegramente, de tal manera que se cuente con los servicios necesarios para ser autosuficiente.

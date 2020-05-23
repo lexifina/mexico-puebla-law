@@ -1,0 +1,2 @@
+Artículo 55. En caso de hallazgo de vestigios arqueológicos.
+Para la autorización de las obras en infraestructura, el promovente deberá acompañar un programa de contingencias para el caso del hallazgo de vestigios arqueológicos, históricos, paleontológicos y culturales a fin de garantizar su rescate, salvaguarda e investigación, presentándolo ante el INAH, para que se determine por su área correspondiente lo conducente.

@@ -1,0 +1,4 @@
+Artículo 193. Balcones Abiertos y Marquesinas
+Los balcones abiertos y marquesinas situados a una altura de 2.50 metros, podrán sobresalir del alineamiento hasta en un metro, siempre y cuando, no existan cableados de infraestructura y/o postes de cualquier tipo. En caso de existir alguno de estos elementos deberá quedar separado del voladizo por lo menos a 50 milímetros de distancia del poste y respetando los lineamientos que sobre infraestructura aérea aplicable.
+En construcciones nuevas no se permitirán voladizos para zonas habitables y/o balcones con cubierta superior fuera del límite del predio indicado por el alineamiento y número oficial. Tampoco serán susceptibles de regularización en caso de construcciones preexistentes.
+Para cualquier tipo de trámite, no son susceptibles de regularización las superficies de construcciones indicadas dentro de las áreas de restricción del alineamiento y número oficial.

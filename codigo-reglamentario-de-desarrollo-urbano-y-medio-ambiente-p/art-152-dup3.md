@@ -1,0 +1,4 @@
+Artículo 152. Condicionantes
+Las construcciones que tengan más de 5 años comprobables deberán realizar el trámite de constancia de construcción preexistente, y pagar los derechos correspondientes a otros usos como el comercial y/o servicios haciéndose acreedor a una sanción por incumplir con este Ordenamiento en cuanto al Coeficiente de Ocupación del Suelo y Coeficiente de Utilización del Suelo y no requerirán de terminación de obra.
+I. Sin excepción alguna, no se permitirá la construcción en áreas con restricción, por lo cual se indicará como área no susceptible de regularización y no se tomará en cuenta para cuantificación.
+II. No se exentará de las sanciones correspondientes por incumplir con este Libro Tercero. De las Construcciones y Coeficientes, aun cuando esta tenga más de 5 años de construida.

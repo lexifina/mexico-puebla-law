@@ -1,0 +1,2 @@
+Artículo 221. Del solidario responsable en propaganda política o electoral.
+Para los efectos específicos de los anuncios relativos a la propaganda política y/o electoral, se considerará como solidario responsable, a aquella persona cuya imagen aparezca en los anuncios de índole político y/o electoral referidos; y responderá solidariamente ante la Autoridad Municipal por todos y cada uno de los efectos que se deriven del incumplimiento a las disposiciones del presente Libro.

@@ -1,0 +1,2 @@
+Artículo 15. Personal que ejecutará los actos de inspección y vigilancia
+Los actos de inspección y vigilancia se deberán realizar por conducto del personal debidamente autorizado para tal efecto, mismo que deberá contar con el documento oficial que lo acredite como inspector, así como la orden escrita con firma autógrafa, expedida por las autoridades competentes, en la que se precisará el lugar o la zona que habrá de inspeccionarse, el objeto de la diligencia, el alcance de ésta y las disposiciones legales que lo fundamenten.

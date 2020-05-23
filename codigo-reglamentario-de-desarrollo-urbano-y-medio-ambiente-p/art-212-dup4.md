@@ -1,0 +1,2 @@
+Artículo 212. Cuando no se cumple con los requisitos previstos en una solicitud.
+Cuando la solicitud no reúna los requisitos previstos por este Libro, la Dirección (sic) Sustentabilidad y Gestión Urbana prevendrá al interesado por una sola vez, para que, en un término de cinco días hábiles siguientes a la notificación, acredite el cumplimiento de los requisitos omitidos. Después del término señalado, si el interesado no da cumplimiento al requerimiento de la autoridad, la solicitud se tendrá por no presentada.

@@ -1,0 +1,2 @@
+Artículo 220. Del permiso, condiciones y requisitos para un anuncio político o electoral.
+Los anuncios de carácter político y/o electoral, que en cualquier tiempo se pretenda colocar en el Municipio de San Andrés Cholula, Puebla, se considerarán como unitarios, debiendo los propietarios de los mismos, solicitar los permisos para cada uno de los anuncios que pretendan instalar, con las condiciones y requisitos que se señalan en el presente Libro.

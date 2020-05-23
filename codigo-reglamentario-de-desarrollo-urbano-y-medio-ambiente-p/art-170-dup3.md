@@ -1,0 +1,2 @@
+Artículo 170. Vigencia
+La Constancia de Terminación de Obra no perderá vigencia, sin embargo, en caso de ser requerido por el contribuyente éste podrá ser reexpedido previo pago de derechos.

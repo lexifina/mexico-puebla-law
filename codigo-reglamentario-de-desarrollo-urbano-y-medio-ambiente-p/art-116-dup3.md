@@ -1,0 +1,10 @@
+Artículo 116. De los Requerimientos para el Otorgamiento de Licencias de Uso de Suelo Específico
+El otorgamiento de Licencias de Uso de Suelo Específico quedará sujeto a la verificación o comprobación que realice la DADU, para efectos de constatar que las condicionantes han quedado efectivamente cumplidas. En caso de que no se hayan satisfecho dichas condicionantes y se hayan efectuado total o parcialmente las obras o utilizado el inmueble la DADU o la Autoridad Municipal, podrá:
+I. Ordenar su cumplimiento inmediato y la suspensión o clausura (sic) las obras, y
+II. Revocar las autorizaciones o permisos otorgados.
+Los propietarios, poseedores, responsables gerentes o administradores de los inmuebles destinados a cualquiera de las siguientes actividades deberán presentar para obtener la Licencia de Uso de Suelo Específico el dictamen correspondiente a un Programa Interno de Protección Civil vigente para el inmueble.
+I. Desarrollos Habitacionales cualquiera que sea su régimen, Centros Comerciales, Oficinas Públicas y Privadas, Edificios destinados a Educación, Instalaciones Deportivas, Baños Públicos, Hospitales, Industriales y de almacenamiento, Salas de Espectáculos, Centros de Reunión, Deportivos, Templos y Estacionamientos Públicos, en términos de lo establecido en el Título Séptimo, Capítulo III del presente Libro Tercero. De las Construcciones;
+II. Estaciones de Servicio en cualquiera de sus modalidades y todos aquellos que manejen y/o almacenen materiales peligrosos;
+III. Los demás que sean de alto riesgo o exista usualmente una concentración de más de 50 personas, incluyendo a los trabajadores del lugar, y
+IV. El Programa Interno de Protección Civil será aprobado por la Dirección de Protección Civil y Bomberos.
+Estos tipos de establecimientos deberán contar con cajones de estacionamiento dentro de sus propios inmuebles o en predios próximos a ellos, en ningún caso el estacionamiento en vía pública podrá sustituir los cajones de estacionamiento que requieran los usos de suelo al interior de sus predios.

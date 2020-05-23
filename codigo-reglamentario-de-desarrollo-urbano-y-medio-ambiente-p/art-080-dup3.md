@@ -1,0 +1,3 @@
+Artículo 80. De las Cedulas Informativas de la Zonificación
+Con la finalidad de informar y orientar a los particulares respecto de la normatividad contenida en el Programa Municipal de Desarrollo Urbano Sustentable de San Andrés Cholula vigente, la Secretaría expedirá a través de la DADU, a petición expresa de los interesados, la Cédula Informativa de Zonificación, en la cual se indicará para el predio de referencia, los Usos de Suelo, Densidad, Coeficientes de Ocupación y Utilización del Suelo y Alturas Máximas permitidos.
+Dicha Cédula Informativa es de carácter exclusivamente informativo y no autoriza uso ni construcción alguna.

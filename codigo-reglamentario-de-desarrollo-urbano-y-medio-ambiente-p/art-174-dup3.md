@@ -1,0 +1,2 @@
+Artículo 174. De la Falta o Incumplimiento de la Licencia de Construcción
+El Ayuntamiento a través de la Secretaría, podrá ordenar la demolición total de una obra, o la parte de ella que se haya realizado sin licencia; así como por haberse ejecutado en contravención a la licencia de uso de suelo y evaluación de impacto ambiental. Así mismo podrá revocar las licencias otorgadas respecto a obras que no hayan cumplido con las condicionantes o normas de utilización y ocupación consignadas en las mismas.

@@ -1,0 +1,2 @@
+Artículo 199. De las medidas correctivas para eliminar la contaminación visual.
+Toda persona física o moral, pública o privada que instale, coloque o construya algún tipo de anuncio que provoque contaminación visual del paisaje natural, o de hitos artificiales deberá, previo dictamen de la Secretaría de Desarrollo Urbano Sustentable, poner en práctica las medidas correctivas para eliminar la contaminación visual o proceder al retiro, borrado o reubicación del mismo.

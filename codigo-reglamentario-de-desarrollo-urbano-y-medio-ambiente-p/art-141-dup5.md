@@ -1,0 +1,2 @@
+Artículo 141. De los anuncios y su explotación comercial en mobiliario urbano.
+Sólo podrán instalar anuncios en mobiliario urbano, las personas físicas o jurídicas que cuenten con la autorización correspondiente para explotar dichos espacios, misma que deberá ser expedida por la Secretaría de Desarrollo Urbano Sustentable, previo estudio y análisis correspondiente por parte de la Dirección de Sustentabilidad y Gestión Urbana, y de conformidad con las disposiciones contenidas en el presente Libro.

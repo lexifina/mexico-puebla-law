@@ -1,0 +1,2 @@
+Artículo 14. La competencia de la Secretaría y el INAH.
+Para la realización de cualquier tipo de obra de conservación, restauración, construcción, adecuación, excavación, cimentación, demolición o colocación de anuncios en los inmuebles y área urbana de los Polígonos denominados "Zonas de Protección", se requerirá de la autorización y licencia correspondiente, emitidas por la Secretaría de Desarrollo Urbano Sustentable, independientemente de las que corresponda al INAH otorgar.

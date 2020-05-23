@@ -1,0 +1,2 @@
+Artículo 94. Del otorgamiento de la licencia solo a los propietarios
+La autorización para la construcción de un fraccionamiento o desarrollo en régimen de propiedad en condominio, sólo se podrá otorgar a la personas física o jurídica propietaria de los terrenos en los que se pretenda ejecutar las obras solicitadas. Cuando el solicitante fuera una persona jurídica, el representante legal deberá acreditar la constitución de aquella y el instrumento notarial de su representación

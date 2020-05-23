@@ -1,0 +1,4 @@
+Artículo 157. Procedimiento del Trámite
+Toda licencia causará los derechos que fijen las tarifas vigentes de la Ley de Ingresos para el Municipio de San Andrés Cholula.
+La Licencia de Construcción e (sic) Obra Mayor, la Bitácora de Obra y el Letrero de identificación (Lona) se entregarán al interesado, cuando éste hubiere cubierto el monto de todos los derechos que haya generado su autorización y haya cumplido con las observaciones que, en su caso, se hayan efectuado por parte de la DADU, así como haber cumplido con las condicionantes indicadas en los diferentes documentos autorizados por esta Secretaría.
+Si en un plazo de 30 días naturales a partir de la última revisión no cumplimenta la documentación solicitada, las observaciones realizadas o no se presenta el interesado o no realizare el pago de derechos correspondientes, se cancelará el expediente completo, debiendo ingresar nuevamente y cumplir con la normativa reglamentaria aplicable.

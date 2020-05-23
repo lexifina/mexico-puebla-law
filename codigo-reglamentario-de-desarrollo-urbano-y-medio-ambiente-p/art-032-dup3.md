@@ -1,0 +1,3 @@
+Artículo 32. De la Ocupación de la Vía Pública con Mobiliario Urbano
+La ocupación de la vía pública con mobiliario urbano utilizado con fines publicitarios, se permitirá siempre y cuando el mobiliario cumpla con funciones de carácter social, el cual deberá contar con el Dictamen Técnico de Movilidad de Conformidad al Artículo 205 del Libro Cuarto del presente Código.
+Los permisos o concesiones para el uso de las vías públicas serán siempre revocables y temporales y nunca podrán otorgarse con perjuicio del libre, seguro y expedito tránsito, del acceso a los predios colindantes, de los servicios públicos instalados o en general de cualquiera de los fines a que sean destinadas las vías públicas o los bienes mencionados.

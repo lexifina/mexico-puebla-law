@@ -1,0 +1,2 @@
+Artículo 8. De los Requisitos para ser Reconocidos como Directores Responsables de Obra Municipal o Corresponsables de Obra
+Los Directores Responsables de Obra Municipal, así como los Corresponsables de Obra, deberán cubrir los requisitos que señala el presente Libro Tercero. De las Construcciones, siendo indispensable que se encuentren presentes en cualquier gestión que se realice en la DADU como parte de su ejercicio y cumplimiento de sus funciones.

@@ -1,0 +1,2 @@
+Artículo 170. Del porcentaje total a ocupar de un anuncio sobre fachada.
+La ubicación, diseño y forma de los anuncios deberá tomar en cuenta la armonía y proporciones del edificio que los sustenta, además del conjunto urbano donde se inscriba, respetando la estética del entorno y apoyarse en proyectos integrales que ofrezcan una imagen propia y uniforme. La publicidad de todo tipo de anuncio sumará como máximo un 20% del total de la fachada.

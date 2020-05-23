@@ -1,0 +1,2 @@
+Artículo 207. De las medidas correctivas en contaminación visual.
+En todos aquellos casos en que existan anuncios, instalaciones o estructuras con contenido publicitario que provoquen contaminación visual de la imagen urbana, la Secretaría de Desarrollo Urbano Sustentable, estará obligada a establecer las medidas correctivas que considere necesarias, previo dictamen técnico, para poner solución a dicha circunstancia, incluyendo la reubicación, retiro o borrado del anuncio.

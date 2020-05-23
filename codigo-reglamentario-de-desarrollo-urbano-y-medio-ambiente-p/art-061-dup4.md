@@ -1,0 +1,2 @@
+Artículo 61. De las Pendientes Transversales en Banquetas
+Las pendientes transversales son desniveles que van de la franja de fachada hacia el arroyo vehicular para el escurrimiento gradual del agua de lluvia hacia el drenaje. Todas las franjas longitudinales de la banqueta deberán estar al mismo nivel y contarán con una pendiente del 1 al 2%. Las pendientes mayores reducen la seguridad y comodidad para transitar y las menores reducen la capacidad de escurrimiento de la banqueta.

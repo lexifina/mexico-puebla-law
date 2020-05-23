@@ -1,0 +1,2 @@
+Artículo 60. Incompetencia
+La autoridad competente, efectuará las diligencias necesarias para la comprobación de los hechos denunciados mediante el procedimiento de inspección, y si resultara que son competencia de otra autoridad, en la misma acta se asentará ese hecho, turnando las constancias que obren en el expediente a la autoridad competente para su trámite y resolución, notificando la resolución respectiva al denunciante en forma personal.

@@ -1,0 +1,2 @@
+Artículo 2. Normas supletorias
+Son normas supletorias en la aplicación de este Reglamento: la Ley de Fraccionamientos y Acciones Urbanísticas, la Ley Orgánica Municipal, la Ley de Planeación, Ley para la Protección del Ambiente Natural y el Desarrollo Sustentable, Ley de Ordenamiento territorial y desarrollo urbano, Ley del Agua, Ley sobre Protección y Conservación de Poblaciones Típicas y Bellezas Naturales, el Código Civil, el Código de Procedimientos Civiles, todas del Estado Libre y Soberano de Puebla.

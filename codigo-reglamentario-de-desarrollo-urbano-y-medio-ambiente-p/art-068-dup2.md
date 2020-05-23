@@ -1,0 +1,2 @@
+Artículo 68. Regularización en caso de fallecimiento del propietario
+En el caso de subdivisiones, divisiones o lotificaciones que no han sido regularizadas y cuyo propietario o promovente ya no se localiza o ya falleció, los afectados podrán acudir ante el Departamento de Gestoría Jurídica Popular del Municipio de San Andrés Cholula con la finalidad de recibir asesoría en torno al trámite de las escrituras correspondientes a su propiedad, conforme a los lineamientos establecidos en el referido Departamento.

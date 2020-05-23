@@ -1,0 +1,3 @@
+Artículo 41. La clasificación y temporalidad de las edificaciones.
+Para verificar la temporalidad de construcción de un inmueble, así como de sus materiales y sistemas constructivos de fabricación, se deberá consultar el catálogo elaborado por el Instituto Nacional de Antropología e Historia (INAH), con la finalidad de tener un conocimiento fiel y objetivo del patrimonio histórico y poder llevar el control de su estado de conservación. Dicho catálogo incluye los inmuebles ubicados en las zonas de protección, barrios tradicionales, sitios específicos y comunidades rurales pertenecientes al Municipio.
+Como una herramienta de consulta para defensa del patrimonio, se presenta una clasificación y temporalidad con las características de los inmuebles:

@@ -1,0 +1,2 @@
+Artículo 50. Las zonas de banqueta.
+Las banquetas, además de conectar a las personas en calidad de peatones, con los servicios, actividades o destinos deseados, son un espacio vital en la interacción social y la generación de actividades recreativas. La banqueta deberá integrarse por cuatro zonas: franja de fachada, franja de circulación peatonal, franja mixta y guarnición. Los lineamientos relacionados a la infraestructura peatonal se deberán consultar en el Libro Cuarto de Movilidad Urbana.

@@ -1,0 +1,2 @@
+Artículo 43. Penas por delitos
+Las sanciones por infracciones administrativas se impondrán sin perjuicio de las penas que correspondan a los delitos en que, en su caso, incurran los infractores.

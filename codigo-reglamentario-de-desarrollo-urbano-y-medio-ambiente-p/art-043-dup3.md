@@ -1,0 +1,2 @@
+Artículo 43. De las (sic) Daños a los Servicios Públicos Oficiales
+Cuando por la ejecución de una obra, por el uso de vehículos, objetos o sustancias peligrosas, o por cualquiera otra causa, se produzcan daños a cualquier servicio público, obra o instalación, pertenecientes al Gobierno del Estado o al Municipio, que exista en una vía pública o en otro inmueble de uso común o destinado al servicio público, la reparación inmediata de los daños será por cuenta del dueño de la obra, del vehículo, del objeto o de la sustancia peligrosa.

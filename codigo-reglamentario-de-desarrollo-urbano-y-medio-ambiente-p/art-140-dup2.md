@@ -1,0 +1,3 @@
+Artículo 140. De la donación para proyectos con macro lotes para futuros desarrollos
+Para el caso de fraccionamientos o desarrollos horizontales, independientemente de su régimen de propiedad, que incluyan macro lotes para futuros desarrollos verticales o mixtos, deberán cumplir con el área de donación según las disposiciones de este Libro.
+Cuando se realicen los trámites de Licencia de Construcción para los proyectos verticales a desarrollarse en dichos macro lotes, se hará la aportación señalada en este Capítulo para este tipo de condominios, independientemente de las ya entregadas por la autorización del fraccionamiento o desarrollo, al tratarse de dos actos diferentes.

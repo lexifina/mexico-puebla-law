@@ -1,0 +1,2 @@
+Artículo 256. De las acciones inmediatas como medidas de seguridad.
+Las medidas de seguridad en materia de imagen urbana, son acciones de ejecución inmediata, de carácter técnico y correctivo, cuyo objetivo es revertir el deterioro y degradación del paisaje urbano consolidado. En los casos en que así lo determine la autoridad, se aplicarán las sanciones previstas con cargo a los titulares de las licencias y/o permisos, y/o a los responsables solidarios. Su monto será considerado como crédito fiscal.

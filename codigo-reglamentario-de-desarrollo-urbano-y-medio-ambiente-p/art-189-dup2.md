@@ -1,0 +1,3 @@
+[N. DE E. VÉASE IMAGEN EN EL P.O. DE 22 DE MAYO DE 2020, PÁGINA 237.]
+Artículo 189. De los Elementos del Diseño Arquitectónico
+Elementos del diseño arquitectónico como lo son: circulaciones, anchos de escaleras, iluminación, ventilación, accesos, asoleamientos, acústica, isópticas entre otros. Todos estos elementos deberán cumplir con las normas del diseño arquitectónico correspondiente de acuerdo a cada género de edificio, debiéndolos fundamentar el proyectista en todo caso, mediante breve memoria descriptiva del proyecto arquitectónico, sujetándose, en los aspectos relacionados a discapacitados, a la norma contenida en el Manual Técnico Accesibilidad adjunto.

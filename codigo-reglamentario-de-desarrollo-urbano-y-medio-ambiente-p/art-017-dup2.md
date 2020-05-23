@@ -1,0 +1,2 @@
+Artículo 17. Documento que acredite la propiedad
+Todo acto de divisiones, subdivisiones, fusiones, segregaciones, lotificaciones y relotificaciones, fraccionamientos o desarrollos independientemente de su régimen de propiedad, deberá de presentar para su trámite la escritura notarial inscrita en el Registro público de la propiedad y del comercio. En ningún caso se aceptarán protocolos notariales, contratos de compraventa ni privados aún certificados ante notario público.

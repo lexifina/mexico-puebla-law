@@ -1,0 +1,2 @@
+Artículo 149. Del Retiro de la Infraestructura
+La Secretaría, podrá ordenar el retiro o reubicación de postes o instalaciones por cuenta de sus propietarios, por razones de seguridad o porque se modifique la anchura de las aceras o se ejecute cualquier obra en la vía pública que lo requiera. Si no lo hicieran dentro del plazo que se les haya fijado el municipio lo ejecutará a costa de los propietarios.

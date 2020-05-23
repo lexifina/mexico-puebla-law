@@ -1,0 +1,5 @@
+Artículo 40. Consideraciones especiales
+Para el diseño de las vialidades de los fraccionamientos y/o desarrollos independientemente de su régimen de propiedad, se atenderá a las siguientes consideraciones:
+I. Cuando las autoridades competentes tengan proyectada la realización de una arteria de alta velocidad, los lotes del fraccionamiento no tendrán acceso directo a ésta;
+II. En caso de que en el predio tenga cruzamiento o entronque con vías de alta velocidad, carreteras, vías de ferrocarril, líneas de alta tensión, zanjas, ríos, canales, barrancas, así como restricciones o afectaciones, se requerirá de la presentación del Dictamen suscrito por parte de la Dependencia municipal, estatal o federal correspondiente, a efecto de verificar la sección vial y zona federal que deban respetarse, así como presentar la propuesta para su integración al proyecto, y
+III. Considerar la integración vial a las calles aledañas (Dictamen de Integración vial), debiendo apegarse a lo establecido en el Libro IV (Movilidad) de este Código Reglamentario.

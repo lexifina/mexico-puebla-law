@@ -1,0 +1,5 @@
+Artículo 148. De los soportes de impresión en vehículos publicitarios.
+El uso de soportes de impresión deberá sujetarse a lo siguiente:
+I. Deberán ser de materiales de fácil limpieza y remoción y conservar las propiedades físicas del material ante el efecto del calor, humedad o cualquier otro factor propio del ambiente;
+II. No deberán sobrepasar las dimensiones del vehículo, y
+III. No se utilizarán en las impresiones los colores en tonos fluorescentes.

@@ -1,0 +1,4 @@
+SECCIÓN VIII
+DE LA CONSTANCIA DE TERMINACIÓN DE OBRA
+Artículo 166. Constancia de Terminación de Obra
+Los inmuebles construidos tendrán derecho de realizar su manifestación de terminación de obra, siempre y cuando, ya cuenten con todas las instalaciones funcionando y concluidas al cien por ciento, en lo referente a: agua potable, energía eléctrica y gas; deberán contar con puertas y ventanas exteriores; con sanitarios funcionando (mínimo un con un baño completo funcionando), aun cuando se encuentre todavía en obra gris. Los propietarios, Directores Responsables de Obra Municipal y los Corresponsables están obligados a manifestar por escrito a la DADU, la terminación de la obra ejecutada, en un plazo no mayor de 20 días naturales contados a partir de la fecha de extinción de vigencia de la Licencia de Construcción, utilizando para este efecto los formatos respectivos.

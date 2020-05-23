@@ -1,0 +1,2 @@
+Artículo 31. Elementos prohibidos en fachadas.
+Queda prohibido colocar, construir o adosar elementos fijos o móviles sobre las fachadas, ya sean: volúmenes, terrazas, marquesinas, toldos, gárgolas, instalaciones hidráulicas, sanitarias, eléctricas, de gas, de aire acondicionado, especiales, y antenas de tv cable, así como todos aquellos elementos que por sus características o funciones, alteren la fisonomía de las fachadas y su contexto urbano natural, en este caso, los particulares deberán ocultar el cableado en fachadas y elementos que afecten a la misma.

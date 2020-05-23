@@ -1,0 +1,9 @@
+Artículo 195. De los Colores de las Marcas en el Pavimento
+El color de las marcas debe cumplir con lo siguiente:
+I. Blanco: Se usa en la superficie de rodadura para delimitar los costados del arroyo vial, separar los flujos en el mismo sentido, y señalar áreas de estacionamiento general y paradas de transporte público, así como en flechas, símbolos y leyendas. En guarniciones se utiliza para delinearlas con objeto de mejorar su visibilidad;
+II. Amarillo: Se usa en la superficie de rodadura para indicar cambio de sentido, advertir sobre la presencia de reductores de velocidad e indicar la prohibición de estacionarse o parar. En las guarniciones se utiliza sólo cuando se quiere restringir el estacionamiento en un tramo de la vía;
+III. Rojo: Se usa en la superficie de rodadura para indicar la ruta de acceso a rampas de emergencia y en guarniciones para señalar los tramos en los que está prohibido parar;
+IV. Verde esmeralda: Se usa en la superficie de rodadura para indicar los cruces ciclistas en las intersecciones y accesos a cocheras en el trazo de ciclocarriles y ciclovías;
+V. Azul celeste: Se utiliza en las marcas colocadas en la superficie de rodadura y guarniciones para indicar espacios de servicios especiales, así como para marcas temporales;
+VI. Naranja: Se usa para las marcas que señalan instalaciones en el arroyo vial y sobre banquetas, y
+VII. Negro: Pueden emplearse junto a las marcas de color blanco cuando el pavimento es de color claro y no proporciona por sí mismo el contraste suficiente. En dicha situación se pinta una raya negra de 0.10 m de ancho a ambos lados de la blanca, pero en ningún caso se debe usar para borrar marcas en la superficie de rodadura, ya que se desgasta dejando visible la señal anterior. También se utiliza en combinación con el color blanco para señalar los obstáculos adyacentes a la vía.

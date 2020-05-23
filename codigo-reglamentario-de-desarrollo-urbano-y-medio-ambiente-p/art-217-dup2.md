@@ -1,0 +1,2 @@
+Artículo 217. Gradería
+En caso de dotarse de graderías, las estructuras de éstas serán de materiales incombustibles, debiendo presentarse los planos y cálculos técnicos con la responsiva profesional de un Director Responsable de Obra Municipal.

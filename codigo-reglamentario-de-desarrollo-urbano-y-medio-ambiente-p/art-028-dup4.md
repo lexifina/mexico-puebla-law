@@ -1,0 +1,2 @@
+Artículo 28. Ruta Accesible en Movilidad
+Todas las calles, espacios públicos, conjuntos habitacionales, edificaciones públicas y privadas deberán contar con una ruta accesible para garantizar que las personas con discapacidad y con movilidad limitada puedan utilizar todos los servicios que se ofrecen, así como garantizar su desplazamiento y uso óptimo de los espacios, en el marco del diseño universal.

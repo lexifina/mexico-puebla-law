@@ -1,0 +1,3 @@
+Artículo 12. Ejecución de actos de inspección y vigilancia
+Los propietarios, poseedores, responsables, encargados y/u ocupantes de los establecimientos zonas o inmuebles que habrán de inspeccionarse tendrán la obligación de permitir al personal autorizado, el acceso al lugar o lugares sujetos a la inspección, en los términos de la orden escrita a que hacen referencia los artículos 15 y 16 del presente Código Reglamentario, así como proporcionar las facilidades y toda clase de información que conduzca a la verificación del cumplimiento del presente ordenamiento jurídico y demás disposiciones aplicables.
+Asimismo, el personal autorizado podrá en todo momento tomar muestras, así como sacar fotografías y realizar grabaciones de video o sonido.

@@ -1,0 +1,2 @@
+Artículo 212. De las Rampa (sic) de Escalera
+Las rampas de escalera de los edificios para educación se construirán con materiales incombustibles y tendrán una anchura mínima de 1.20 metros, podrán dar servicio a un máximo de 4 aulas por piso y deberán ser aumentadas a razón de 30 centímetros por cada aula que se exceda a este número, pero en ningún caso se permitirá una anchura mayor de 2.40 metros. Deberán estar además dotadas de barandales con altura mínima de 90 centímetros.

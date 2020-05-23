@@ -1,0 +1,3 @@
+[N. DE E. VÉASE IMAGEN EN EL P.O. DE 22 DE MAYO DE 2020, PÁGINA 376.]
+Artículo 190. Del Señalamiento Informativo para Movilidad Peatonal y Ciclista
+Los señalamientos verticales informativos para la movilidad peatonal y ciclista tienen por objeto indicar y proveer de información a los usuarios durante su recorrido de la infraestructura, servicios, integración con otros modos de transporte, rutas y distancias hacia destinos específicos. Se aplicarán como complemento de los dispositivos para el tránsito vehicular establecidos en el Manual de Señalización Vial y Dispositivos de Seguridad de la Secretaría de Comunicaciones y Transportes.

@@ -1,0 +1,2 @@
+Artículo 33. Porcentaje mínimo de áreas verdes de uso común en los proyectos de fraccionamientos y/o desarrollos
+Al alcance al artículo anterior, todos los fraccionamientos y desarrollos independientemente de su régimen de propiedad, deberán considerar al menos un 10% de áreas verdes en forma de jardines o parques arbolados para uso común de los mismos habitantes del fraccionamiento o desarrollo, respecto al total de las áreas netas o vendibles. Esto independientemente, de las áreas ecológicas consideradas para donación.

@@ -1,0 +1,2 @@
+Artículo 234. Del Número de Autorizaciones
+La Secretaría de Desarrollo Urbano sustentable está facultada para establecer el número de autorizaciones y vehículos asociados a las mismas, que conforme a los estudios realizados, se requieran para prestar en forma eficiente y continua el servicio de transporte complementario de micromovilidad, pero velará porque no se constituyan monopolios ni se incurra en prácticas que tiendan a propiciarlos.

@@ -1,0 +1,4 @@
+Artículo 73. Plazos
+I. EL tiempo de respuesta a la solicitud por parte de esta DADU, será de 5 días hábiles, a partir del día inmediato siguiente al pago efectuado por el contribuyente, no así en el caso de que el trámite sea de "derivadas" de desarrollos verticales u horizontales, cuyo tiempo de respuesta será proporcional al número de dictámenes a emitir;
+II. En caso de no haber atención por parte del contribuyente a su solicitud, la misma será cancelada a partir de 30 días naturales posteriores al último movimiento registrado en sistema, y
+III. El costo que se asigne al documento que consigne el Alineamiento y Número Oficial, se determinará de acuerdo con el número de metros lineales que limite al predio con la vía pública, según la Ley de Ingresos vigente, además de los costos por asignación de Número Oficial y la Alineación de los primeros 10 metros.

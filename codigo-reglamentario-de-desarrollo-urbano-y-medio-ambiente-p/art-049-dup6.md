@@ -1,0 +1,3 @@
+Artículo 49. Disposiciones aplicables para aseguramiento y clausura
+Cuando proceda como sanción el aseguramiento definitivo o la clausura temporal o definitiva, total o parcial, el personal comisionado para ejecutarla procederá a levantar acta detallada de la diligencia, observando las disposiciones aplicables a la realización de las inspecciones.
+En los casos en que se imponga como sanción la clausura temporal, las autoridades competentes deberán indicar al infractor las medidas correctivas y acciones que debe llevar a cabo para subsanar las irregularidades que motivaron dicha sanción, así como los plazos para su realización.

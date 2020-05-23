@@ -1,0 +1,2 @@
+Artículo 157. Integración de los Jardines de Lluvia
+Los proyectos de diseño, rediseño, renovación, remodelación, adecuación o construcción de las vialidades y espacios públicos del municipio deberán incluir sistemas de drenaje y conducción pluvial, como jardines de lluvia, ranuras, rejillas, bocas de tormenta y/o coladeras con las condiciones necesarias para la rápida y libre conducción del agua pluvial, según las características y requerimientos particulares de cada espacio.

@@ -1,0 +1,3 @@
+Artículo 100. Las visitas de verificación para revisar el cumplimiento de las disposiciones.
+La Dirección de Protección Civil y Bomberos y la Dirección de Sustentabilidad y Gestión Urbana, para comprobar el cumplimiento de las disposiciones legales estarán facultadas para llevar a cabo visitas de verificación tendientes a la comprobación del cumplimiento de obligaciones reglamentarias en materia de anuncios.
+Las visitas de verificación serán realizadas de manera conjunta o separada por las autoridades señaladas en el párrafo anterior, mismas que deberán informar el resultado de estas a la Dirección de Sustentabilidad y Gestión Urbana.

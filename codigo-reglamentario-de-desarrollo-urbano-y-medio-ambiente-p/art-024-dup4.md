@@ -1,0 +1,2 @@
+Artículo 24. Integración de la Accesibilidad
+Todas las edificaciones habitacionales, educativas, culturales, de salud, recreativas, deportivas, de uso comercial, para servicios, industrial, equipamientos para el servicio público, deberán contar con espacios accesibles para personas con discapacidad, adultos mayores y mujeres embarazadas, contemplando la tecnología disponible, las ayudas técnicas que deberán ser exclusivos o prioritarios, en su uso, para este grupo de población.

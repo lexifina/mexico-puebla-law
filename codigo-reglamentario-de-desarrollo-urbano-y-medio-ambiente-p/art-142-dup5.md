@@ -1,0 +1,2 @@
+Artículo 142. El mobiliario concesionado o rentado.
+Se considera también mobiliario urbano, todos aquellos muebles y equipamiento que se encuentren concesionados, rentados o administrados a una persona o empresa. De igual manera deberán sujetarse al presente Libro todo aquel mobiliario o equipamiento ubicado en la vía pública municipal o áreas de uso común, que contengan publicidad o anuncio alguno.

@@ -1,0 +1,2 @@
+Artículo 30. Verificación del cumplimiento de medidas ordenadas
+Las autoridades competentes, verificarán el cumplimiento de las medidas ordenadas en términos del requerimiento o resolución respectiva y en caso de subsistir las infracciones podrán imponer las sanciones que procedan conforme a este Código Reglamentario, independientemente de denunciar la desobediencia de un mandato legítimo de autoridad ante las instancias competentes.

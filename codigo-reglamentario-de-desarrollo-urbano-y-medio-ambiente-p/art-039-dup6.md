@@ -1,0 +1,2 @@
+Artículo 39. Incumplimiento a la resolución
+Si una vez vencido el plazo concedido por las autoridades competentes a que se refiere el párrafo anterior, resultare que dicha infracción o infracciones aún subsisten o no se han ejecutado las medidas de seguridad, medidas correctivas o medidas de urgente aplicación, podrán imponerse multas por cada día que transcurra sin obedecer el requerimiento o la resolución definitiva, o la clausura de las obras, estructuras, instalaciones, establecimientos o fuentes contaminantes, según corresponda.

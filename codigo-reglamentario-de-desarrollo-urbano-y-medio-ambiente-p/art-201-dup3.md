@@ -1,0 +1,2 @@
+Artículo 201. De los Servicios Complementarios de Micromovilidad
+Se consideran servicios complementarios de micromovilidad a las soluciones de transporte que resuelven el primer y último tramo de los trayectos diarios de las y los usuarios mediante la administración y operación de aplicaciones y plataformas informáticas, basadas en el desarrollo de las tecnologías de los dispositivos inteligentes y los sistemas de posicionamiento global y de pagos electrónicos, cuyos esquemas tarifarios serán determinados por sus operadores.

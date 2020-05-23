@@ -1,0 +1,2 @@
+Artículo 254. De las medidas de seguridad en materia de Imagen Urbana y Patrimonio.
+Por medidas de seguridad en materia de Imagen Urbana y Patrimonio Arquitectónico, se entenderá las determinaciones preventivas, que tendrán por objeto evitar daños a personas o bienes que puedan causar las obras de restauración, adecuación o reestructuración de muros y cubiertas en edificaciones deterioradas con estructuras nuevas para su rehabilitación; equipamiento, infraestructura e integración de elementos arquitectónicos nuevos.

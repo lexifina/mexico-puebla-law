@@ -1,0 +1,7 @@
+Artículo 135. Cumplimiento mediante compensación numeraria o en obra
+Para el cumplimiento de las áreas de donación que se realicen mediante Compensación numeraria o en obra del déficit correspondiente de las áreas ecológicas y de equipamiento urbano de los fraccionamientos y desarrollos, independientemente de su régimen de propiedad, se deberá considerar los (sic) siguiente:
+I. Que el importe calculado corresponda al equivalente del déficit de las áreas de donación;
+II. Que se establezca por parte del fraccionador y/o desarrollador la forma en que propone cumplir con esta obligación pudiendo contemplarse las siguientes:
+a. Aportación numeraria a favor del H. Ayuntamiento, o
+b. Realización de una obra para equipamiento urbano público pudiendo tratarse de los siguientes rubros: educación, cultura, recreación, deporte, salud, asistencia social, comercio, abasto, comunicaciones, transportes, administración pública y servicios urbanos, considerándose un 50% para equipamiento y un 50% para áreas ecológicas, el cual será justificado mediante un estudio técnico urbano fundado y motivado, asimismo, deberá presentarse el proyecto ejecutivo y el presupuesto de obra revisado y validado por la Dirección de Obras Públicas del Municipio.
+Dicha propuesta deberá ser autorizada mediante Dictamen técnico para la compensación de áreas de donación emitido por la Dirección de Sustentabilidad y Gestión Urbana.

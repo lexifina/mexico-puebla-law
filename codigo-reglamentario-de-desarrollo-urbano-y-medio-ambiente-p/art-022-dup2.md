@@ -1,0 +1,2 @@
+Artículo 22. Ecotecnias en fraccionamientos y/o desarrollos
+Todos los fraccionamientos y desarrollos independientemente de su régimen de propiedad deberán incluir al menos 4 tecnologías alternativas sustentables y/o ecotecnologías, para el ahorro del agua y energía, tales como captación y reutilización de agua, sistemas ahorradores de energía y agua, sistemas fotovoltaicos, calentadores solares, además de poder considerar azoteas verdes, huertos urbanos, y compostas, entre otras de acuerdo con el Libro Primero de este Código.

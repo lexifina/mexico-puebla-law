@@ -1,0 +1,2 @@
+Artículo 237. Del Dictamen de Factibilidad
+Para el establecimiento de terminales de competencia federal o estatal, bases y sitios en el Municipio, los concesionarios o interesados en su instalación deberán obtener previamente dictamen de factibilidad elaborado conjuntamente por la Dirección de Tránsito Municipal y la Dirección de Innovación y Proyectos Urbanos, respecto de su ubicación y funcionamiento, sin perjuicio de las demás obligaciones que las disposiciones municipales aplicables les impongan.

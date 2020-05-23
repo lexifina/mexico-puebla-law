@@ -1,0 +1,2 @@
+Artículo 4. Alcances
+Las normas de este Segundo Libro serán aplicables a las personas físicas y jurídicas que pretendan fraccionar, dividir, subdividir, segregar, fusionar, lotificar o relotificar inmuebles, realizar desarrollos o hacer modificaciones o cambios de proyecto, de acuerdo con los fines que se persiguen en este ordenamiento reglamentario, independientemente del régimen de propiedad al que se encuentren sujetos.
