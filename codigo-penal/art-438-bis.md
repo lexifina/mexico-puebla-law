@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE JULIO DE 2020)
+Artículo 438 Bis.- Tratándose de delitos cometidos en contra de médicos, cirujanos, personal de enfermería y demás profesionales similares y auxiliares del sector privado o público que presten servicios de salud en términos de la ley de la materia, que en ejercicio de sus funciones o derivado de las mismas, durante el periodo que comprenda la declaración de una emergencia sanitaria, la pena aumentará en un tanto, además de la que corresponda por el o los delitos cometidos.
