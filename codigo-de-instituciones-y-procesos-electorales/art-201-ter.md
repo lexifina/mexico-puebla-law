@@ -22,8 +22,8 @@ C. DE LA OBTENCIÓN DEL APOYO CIUDADANO:
 I.- Durante la etapa establecida para tal efecto en la convocatoria, los aspirantes a candidatos independientes, podrán realizar, por medios diversos a la radio y la televisión, actos tendentes a recabar el porcentaje de apoyo ciudadano requerido; dichos actos no deben constituir actos anticipados de campaña;
 (REFORMADO PRIMER PÁRRAFO, P.O. 9 DE ENERO DE 2016)
 II.- Los ciudadanos que decidan manifestar su respaldo a un determinado aspirante a candidato independiente lo harán mediante el llenado del formato que al efecto apruebe el Consejo General, mismo que deberá contener la firma o huella digital del ciudadano y copia de su credencial para votar vigente, éste deberá ser presentado ante los funcionarios electorales que se designen y los representantes que, en su caso, acrediten los aspirantes a candidato independiente, en los inmuebles destinados para ello.
-(REFORMADO, P.O. 31 DE JULIO DE 2017)
-Los partidos políticos, los convenios de asociación electoral y las coaliciones podrán acreditar representantes a fin de presenciar la recepción de los respaldos ciudadanos.
+(REFORMADO, P.O. 29 DE JULIO DE 2020)
+Los partidos políticos y las coaliciones podrán acreditar representantes a fin de presenciar la recepción de los respaldos ciudadanos.
 Los inmuebles que se destinarán para la recepción de la manifestación del respaldo ciudadano serán:
 a) Para aspirantes a candidato independiente para la elección de Gobernador, en las sedes de los Consejos Distritales que correspondan al domicilio de los ciudadanos que decidan manifestar su apoyo, o en su caso, en las oficinas del Consejo General;
 b) Para aspirantes a candidato independiente a Diputados, en las sedes de los Consejos Distritales que corresponda a la demarcación por la que pretenda competir, y exclusivamente para ciudadanos con domicilio en el ámbito territorial al que aspira; y,

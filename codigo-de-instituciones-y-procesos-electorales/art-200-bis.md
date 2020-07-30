@@ -67,4 +67,5 @@ VII.- Contratar publicidad en radio y/o televisión para las precampañas, por s
 (REFORMADA, P.O. 22 DE AGOSTO DE 2015)
 VIII.- Fijar su propaganda en contravención a lo establecido en el Capítulo III, Título Tercero del Libro Quinto de este Código, así como la legislación aplicable;
 IX.- Utilizar en su propaganda símbolos, distintivos, emblemas o figuras con motivo religioso; y
-X.- Utilizar expresiones verbales o escrito contrarios a la moral, que injurien a las autoridades, a los demás partidos políticos o precandidatos, o que tiendan a incitar a la violencia y al desorden.
+(REFORMADA, P.O. 29 DE JULIO DE 2020)
+X.- Utilizar expresiones verbales o escritas que injurien a las autoridades, a los demás partidos políticos, precandidatas o precandidatos, que tiendan a incitar a la violencia y al desorden, o constituyan violencia política contra las mujeres en razón de género.

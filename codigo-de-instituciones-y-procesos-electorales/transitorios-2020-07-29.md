@@ -1,0 +1,9 @@
+P.O. 29 DE JULIO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES AL CÓDIGO DE INSTITUCIONES Y PROCESOS ELECTORALES DEL ESTADO DE PUEBLA".]
+PRIMERO. El presente Decreto deberá publicarse en el Periódico Oficial del Estado y entrará en vigor al día siguiente de su publicación.
+SEGUNDO. Los partidos políticos que a la publicación del presente cuenten con registro vigente en la entidad, contarán con sesenta días hábiles, contados a partir de la conclusión del proceso electoral local 2020-2021, para dar cumplimiento a las disposiciones contenidas dentro de los artículos 34, 35 y 36 del presente Decreto.
+TERCERO. El contenido de la reforma al artículo 47 del presente Decreto surtirá efectos a partir del Ejercicio Fiscal 2021.
+CUARTO. El Instituto Electoral del Estado, ordenara las acciones administrativas y financieras necesarias, atendiendo su disposición presupuestaria, para dar cumplimiento al contenido del artículo 100 del presente Decreto.
+QUINTO. Las quejas y denuncias presentadas por actos u omisiones que impliquen violencia política contra las mujeres en razón de género, se substanciarán y resolverán de conformidad con la normatividad vigente al momento de su configuración.
+SEXTO. Las modificaciones contenidas dentro de los artículos 16, 201 y 320 del presente Decreto, surtirán efectos con la entrada en vigor de las reformas realizadas al artículo 35 fracción III de la Constitución Política del Estado Libre y Soberano de Puebla, con relación a la eliminación de la asignación de la primera diputación de representación proporcional, a la fórmula de candidatas o candidatos de mayoría relativa que no hubiesen obtenido la constancia respectiva.
+SÉPTIMO. Se derogan todas las disposiciones que se opongan al presente Decreto.
