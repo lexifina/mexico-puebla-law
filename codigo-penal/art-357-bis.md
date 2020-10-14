@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE OCTUBRE DE 2020)
+Artículo 357 Bis. A quien realice por si o inste a otros a realizar, actos discriminatorios mencionados en el artículo anterior, en contra de médicos, personal de enfermería, demás profesionales similares y auxiliares del sector salud, privado o público, durante una emergencia sanitaria declarada por autoridad competente, las penas se aumentarán hasta en una mitad más.
