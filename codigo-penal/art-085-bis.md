@@ -5,4 +5,5 @@ II.- Lo cometa al invadir con un vehículo, el carril exclusivo para la circulac
 III.- Lo cometa al conducir un vehículo mientras utiliza un teléfono celular u otro dispositivo electrónico móvil que lo distraiga o le dificulte la conducción; y
 IV.- Se dé a la fuga o abandone el lugar del accidente.
 Quedan exceptuados de lo dispuesto por la fracción II del presente artículo, en lo que respecta al uso del carril exclusivo para la circulación del Sistema de Transporte Público Masivo, los conductores de vehículos de emergencia.
-Además se sancionará con la suspensión o cancelación definitiva de la licencia para conducir vehículos expedida por cualquier instancia. La duración de la suspensión podrá ser de uno a diez años.
+(REFORMADO, P.O. 17 DE NOVIEMBRE DE 2020)
+Además, dependiendo de los casos previstos en el presente artículo, se sancionará con la suspensión o cancelación definitiva de la licencia para conducir vehículos expedida por cualquier instancia. En el caso de homicidio culposo, en que se actualice lo enunciado en la fracción I del presente artículo, procederá siempre la cancelación definitiva de la licencia para conducir vehículos expedida por cualquier instancia. En los demás casos la duración de la suspensión podrá ser de uno a diez años.
