@@ -1,4 +1,3 @@
-(NOTA: EL 18 DE ENERO DE 2021, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VI Y VII, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 138/2019, DECLARÓ LA INVALIDEZ DE LA PORCIÓN NORMATIVA DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 9 DE NOVIEMBRE DE 2019, FECHA EN LA QUE ENTRÓ EN VIGOR EL DECRETO IMPUGNADO, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
-(REFORMADO, P.O. 8 DE NOVIEMBRE DE 2019)
-Artículo 128 Bis.- La prescripción para cualquiera de sus efectos será improcedente para los delitos de violación, feminicidio, homicidio doloso, DESAPARICIÓN FORZADA DE PERSONAS, Y DE DESAPARICIÓN COMETIDA POR PARTICULARES.
+(REFORMADO, P.O. 21 DE ENERO DE 2021)
+Artículo 128 Bis.- La prescripción para cualquiera de sus efectos será improcedente para los delitos de corrupción de menores e incapaces o de personas que no puedan resistir contempladas en la fracción I del artículo 217, pornografía de menores e incapaces, abuso sexual, estupro, hostigamiento, acoso sexual, violación, feminicidio y homicidio doloso.
 2.- PRESCRIPCION DE LA ACCION PERSECUTORIA
