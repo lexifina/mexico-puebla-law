@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE ENERO DE 2021)
+Artículo 346 Bis.- A quien abandone a una mujer embarazada, y sin causa justificada incumpla las obligaciones de prestar asistencia económica y alimentos durante el embarazo y una vez nacido el o la menor; se le impondrán (sic) de nueve meses a seis años de prisión, además de la reparación del daño y el pago de alimentos para el recién nacido y la madre en los casos que procedan.
