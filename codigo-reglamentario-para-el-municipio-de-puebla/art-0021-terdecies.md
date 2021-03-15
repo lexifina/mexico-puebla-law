@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 Artículo 21 Terdecies.- Las autoridades municipales propondrán los mecanismos de operación adecuados para la participación igualitaria entre mujeres y hombres en la vida política municipal, desarrollando las acciones siguientes:
 I. Vigilar el cumplimiento de las leyes que tengan por objeto la participación de las mujeres en la vida política municipal;
 II. Vigilar e implementar medidas destinadas a erradicar la violencia política contra las mujeres en razón de género en términos de lo establecido en la Ley para el Acceso de las Mujeres a una Vida Libre de Violencia del Estado de Puebla;

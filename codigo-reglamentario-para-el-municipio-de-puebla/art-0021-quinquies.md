@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 Artículo 21 Quinquies.- Los principios rectores en materia de derechos humanos e igualdad de género son:
 I. La igualdad de género;
 II. El respeto a la dignidad humana;

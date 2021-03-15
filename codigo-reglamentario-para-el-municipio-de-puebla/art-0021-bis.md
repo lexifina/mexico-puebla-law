@@ -1,7 +1,7 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 CAPÍTULO 4 BIS
 DE LOS DERECHOS HUMANOS E IGUALDAD DE GÉNERO
-(ADICIONADO, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 Artículo 21 Bis.- Las personas que habitan el municipio de Puebla gozarán de los derechos humanos y garantías reconocidas en la Constitución Política de los Estados Unidos Mexicanos, en los tratados internacionales de los que el Estado Mexicano sea parte, en la Constitución Política del Estado Libre y Soberano de Puebla, así como en las normas generales y locales.
 Este Código Reglamentario para el Municipio de Puebla, los Reglamentos y disposiciones generales expedidos por el Honorable Ayuntamiento del Municipio de Puebla, en materia de derechos humanos, se interpretarán de conformidad con los instrumentos mencionados en el párrafo que antecede, favoreciendo en todo tiempo a las personas la protección más amplia.
 Las autoridades municipales, en el ámbito de sus competencias, tienen la obligación de promover, respetar, proteger y garantizar los derechos humanos de conformidad con los principios de universalidad, interdependencia, indivisibilidad y progresividad. En consecuencia, éstas deberán prevenir, investigar, sancionar y reparar las violaciones a los derechos humanos, en los términos de las disposiciones jurídicas aplicables.

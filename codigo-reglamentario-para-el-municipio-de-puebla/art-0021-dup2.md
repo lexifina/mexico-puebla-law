@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 Artículo 21 Sexdecies.- Para lograr la igualdad de trato y oportunidades entre mujeres y hombres en el ámbito educativo, las autoridades municipales deberán:
 I. Integrar el principio de igualdad de género en los programas y políticas públicas educativas, eliminando los estereotipos que produzcan desigualdad;
 II. Desarrollar proyectos y programas dirigidos a fomentar el crecimiento, difusión y respeto de los derechos humanos y el principio de igualdad de género;

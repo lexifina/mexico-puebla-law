@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 Artículo 21 Quáter.- Corresponde a las autoridades municipales proteger y garantizar la igualdad entre mujeres y hombres, mediante la eliminación de la discriminación, sea cual fuere su circunstancia o condición, en los ámbitos público y privado, promoviendo el empoderamiento de las mujeres, con el propósito de alcanzar una sociedad más democrática, justa, equitativa y solidaria, por lo que se deben tomar las medidas presupuestales y administrativas para garantizar la igualdad de trato y oportunidades entre mujeres y hombres.
 La Secretaría para la Igualdad Sustantiva de Género del Honorable Ayuntamiento del Municipio de Puebla ejecutará todas las acciones necesarias para el diseño de los planes y programas, con la finalidad de propiciar el derecho a una vida libre de violencia e igualdad entre mujeres y hombres de acuerdo a sus atribuciones.

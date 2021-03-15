@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 Artículo 21 Undecies.- El Honorable Ayuntamiento del Municipio de Puebla adoptará las medidas, estrategias y acciones preventivas que protejan los derechos humanos, basadas en campañas y actividades de información objetiva, concientización y sensibilización sobre el problema de la violencia de género, y acciones tendientes a disminuir la desigualdad entre mujeres y hombres, así como las prácticas discriminatorias en cualquiera de sus modalidades.

@@ -1,4 +1,4 @@
-(ADICIONADO, P.O. 10 DE MARZO DE 2021)
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 12 DE MARZO DE 2021)
 Artículo 21 Duodecies.- Las autoridades municipales, en el ámbito de sus respectivas competencias, deberán garantizar la igualdad de género en la vida económica y laboral, para lo cual adoptarán medidas dirigidas a erradicar cualquier tipo de discriminación laboral entre mujeres y hombres, desarrollando las siguientes acciones:
 I. Impulsar liderazgos igualitarios;
 II. Promover políticas públicas de empleo que tengan como objetivo prioritario aumentar la participación de las mujeres en el mercado laboral y avanzar en la igualdad de género, para ello, se deberán implementar acciones afirmativas para mejorar las oportunidades a las mujeres, así como su permanencia, potenciando su nivel formativo y su adaptación a los requerimientos del mercado de trabajo;
