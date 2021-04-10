@@ -1,0 +1,4 @@
+P.O. 9 DE ABRIL DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA EL ARTÍCULO 84 DE LA LEY DE EDUCACIÓN DEL ESTADO DE PUEBLA Y ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 33 DE LA LEY DE PRESTACIÓN DE SERVICIOS PARA LA ATENCIÓN, CUIDADO Y DESARROLLO INTEGRAL INFANTIL DEL ESTADO DE PUEBLA".]
+PRIMERO. El presente Decreto deberá publicarse en el Periódico Oficial del Estado y entrará en vigor al día siguiente de su publicación.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
