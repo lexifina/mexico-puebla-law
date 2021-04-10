@@ -1,0 +1,6 @@
+P.O. 9 DE ABRIL DE 2021.
+[N. DE E. TRANSITORIOS DE LA "DECLARATORIA DEL HONORABLE CONGRESO DEL ESTADO, POR LA QUE DECLARA APROBADO EL DECRETO EMITIDO POR ESTA LEGISLATURA QUE REFORMA LAS FRACCIONES XII Y XIII DEL ARTÍCULO 12, EL INCISO B) DE LA FRACCIÓN III DEL ARTÍCULO 13, EL INCISO A) DE LA FRACCIÓN IV DEL 105 Y EL PRIMER PÁRRAFO DEL 123, Y ADICIONA LA FRACCIÓN XIV AL ARTÍCULO 12 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE PUEBLA, EN MATERIA DE MOVILIDAD Y SEGURIDAD VIAL".]
+PRIMERO. El presente Decreto deberá publicarse en el Periódico Oficial del Estado y entrará en vigor el (sic) día siguiente de su publicación.
+SEGUNDO. El Congreso del Estado deberá expedir, en un plazo que no excederá de ciento ochenta días contados a partir de la entrada en vigor del presente Decreto, la legislación local en materia de movilidad y seguridad vial, así como las adecuaciones conducentes en términos del presente, a la legislación en materia de Transportes, Vialidad y de Ordenamiento Territorial y Desarrollo Urbano.
+Para efectos de lo establecido en el párrafo anterior el Congreso del Estado deberá realizar foros de consulta ciudadana o ejercicios de parlamento abierto con organizaciones de la sociedad civil en la construcción y dictaminación de la legislación mencionada.
+TERCERO. Se derogan todas las disposiciones que se opongan al presente Decreto.
