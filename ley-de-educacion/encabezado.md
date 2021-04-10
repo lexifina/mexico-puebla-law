@@ -1,12 +1,11 @@
-LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE COLIMA
-Ley publicada en el Suplemento No. 1 del Periódico Oficial del Estado de Colima, el sábado 18 de abril de 2015.
-DECRETO No. 489
-POR EL QUE SE APRUEBA LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE COLIMA.
-LIC. MARIO ANGUIANO MORENO, Gobernador Constitucional del Estado Libre y Soberano de Colima, a sus habitantes sabed:
-Que el H. Congreso del Estado me ha dirigido para su publicación el siguiente:
-D E C R E T O
-EL HONORABLE CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE COLIMA, EN EJERCICIO DE LAS FACULTADES QUE LE CONFIERE LOS ARTÍCULOS 33 FRACCIÓN XLII, Y 39 DE LA CONSTITUCIÓN POLÍTICA LOCAL, EN NOMBRE DEL PUEBLO, Y
-C O N S I D E R A N D O:
-[...]
-Por lo anteriormente expuesto, se expide el siguiente:
-D E C R E T O No. 489
+LEY DE EDUCACIÓN DEL ESTADO DE PUEBLA
+Ley publicada en la Segunda Sección del Estado de Puebla, el lunes 18 de mayo de 2020.
+DECRETO del Honorable Congreso del Estado, por el que expide la Ley de Educación del Estado de Puebla.
+Al margen el Escudo del Estado de Puebla, con una leyenda que dice: Unidos en el Tiempo, en el Esfuerzo, en la Justicia y en la Esperanza. Estado Libre y Soberano de Puebla. H. Congreso del Estado de Puebla. LX Legislatura.
+LUIS MIGUEL GERÓNIMO BARBOSA HUERTA, Gobernador Constitucional del Estado Libre y Soberano de Puebla, a sus habitantes sabed:
+Que por la Secretaría del H. Congreso, se me ha remitido el siguiente:
+EL HONORABLE CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA
+CONSIDERANDO
+[…]
+Por lo anteriormente expuesto y con fundamento en los artículos 56, 57 fracción I, 64, 67 y 84 párrafo segundo de la Constitución Política del Estado Libre y Soberano de Puebla; 22, 134, 135, 136 y 163 de la Ley Orgánica del Poder Legislativo del Estado Libre y Soberano de Puebla; 93 fracción VII y 120 fracciones II y VII del Reglamento Interior del Honorable Congreso del Estado Libre y Soberano de Puebla, se emite la siguiente Minuta de:
+LEY DE EDUCACIÓN DEL ESTADO DE PUEBLA

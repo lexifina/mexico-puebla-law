@@ -1,3 +1,0 @@
-P.O. 9 DE SEPTIEMBRE DE 2017.
-[N. DE E. TRANSITORIO DEL "DECRETO NO. 339 POR EL QUE SE REFORMAN DIVERSAS DISPOSICIONES DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE COLIMA".]
-ÚNICO. La presente ley entrará en vigor al día siguiente de su publicación en el Periódico "El Estado de Colima".

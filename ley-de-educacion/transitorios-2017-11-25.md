@@ -1,3 +1,0 @@
-P.O. 25 DE NOVIEMBRE DE 2017.
-[N. DE E. TRANSITORIO DEL "DECRETO 377 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE LOS DERECHOS DE LAS NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE COLIMA".]
-ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Colima"

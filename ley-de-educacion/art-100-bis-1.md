@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 20 DE OCTUBRE DE 2018)
-Artículo 100 Bis 1. El Estado y los Municipios garantizarán a las niñas, niños y adolescentes su integración a la sociedad de la información y el conocimiento, acorde a los fines establecidos en el artículo tercero de la Constitución, mediante una política de inclusión digital universal en condiciones de equidad, asequibilidad, disponibilidad, accesibilidad y calidad.

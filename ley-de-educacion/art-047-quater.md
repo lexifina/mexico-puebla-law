@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 4 DE SEPTIEMBRE DE 2021)
-Artículo 47 Quáter. Las autoridades penitenciarias en coordinación con las autoridades competentes de la materia de que se trate garantizarán a las hijas y los hijos de mujeres y hombres privados de su libertad el goce y disfrute de sus derechos, en los términos de lo previsto en la Ley Nacional de Ejecución Penal, atendiendo a los estándares constitucionales e internacionales en la materia.
