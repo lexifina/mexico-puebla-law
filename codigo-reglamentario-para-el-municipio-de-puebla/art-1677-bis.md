@@ -26,11 +26,12 @@ b) Analizar las solicitudes y documentos que presenten los interesados para obte
 c) Emitir licencia de uso de suelo y licencia de construcción, necesarios para la aprobación de las licencias;
 d) Regular los usos, destinos y reservas de áreas para el servicio público de estacionamiento en zonas adecuadas, de conformidad con la Carta Urbana;
 e) Determinar las normas relativas al uso de suelo y destinos condicionados, consignándose lo conducente en las licencias;
-f) Solicitar a SSPTM, la realización del dictamen, que derive del estudio y análisis del impacto en la vialidad que produzca la apertura de un estacionamiento público;
+(REFORMADO, P.O. 11 DE JUNIO DE 2021)
+f) Solicitar a la Secretaría de Movilidad, la realización del dictamen, que derive del estudio y análisis del impacto en la vialidad que produzca la apertura de un estacionamiento público, coadyuvando a definir las estrategias que permitan una mejor planeación en materia de estacionamientos con servicio al público y estacionamiento en la vía pública;
 g) Fijar los requisitos técnicos a que deberán sujetarse las construcciones o instalaciones en predios para estacionamientos; y
 h) Las facultades que le confiera el presente Capítulo y disposiciones normativas aplicables en la materia.
 V. De la SSPTM:
-a) Evaluar y en su caso llevar a cabo los estudios de impacto vial en asuntos relacionados al otorgamiento de uso de suelo, coadyuvando a definir las estrategias que permitan una mejor planeación en materia de estacionamientos con servicio al público y estacionamiento en la vía pública;
+a) (DEROGADO, P.O. 11 DE JUNIO DE 2021)
 b) Vigilar que en los estacionamientos, no se altere el orden y la seguridad pública;
 c) Impedir que la entrada y salida de vehículos en los estacionamientos afecten el libre tránsito en aceras, calles y demás vías públicas o lugares de tránsito para peatones y vehículos;
 d) Vigilar y coordinar las medidas de seguridad en los estacionamientos requeridas por las autoridades y la normatividad de protección civil;
