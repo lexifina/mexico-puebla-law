@@ -1,4 +1,2 @@
-(ADICIONADO, P.O. 25 DE MAYO DE 2012)
-Artículo 235 Quáter.- Corresponde a los Defensores designados y a los Defensores pasantes, asistir a los infractores desde el momento de su presentación ante el Juez Calificador por los elementos de seguridad pública o desde su presentación en función del citatorio respectivo, independientemente del tipo de infracción de que se trate
-En caso de ser remitido ante el Ministerio Público, acompañarlo hasta tanto sea atendido y representado por el Defensor de Oficio o Defensor Público de la Institución respectiva o Defensor particular.
-DEL PROCEDIMIENTO
+(REFORMADO, P.O. 5 DE JULIO DE 2021)
+Artículo 235 Quáter.- Corresponde a las y los defensores designados asistir a las personas infractoras desde el momento de su presentación ante la Jueza o Juez de Justicia Cívica por los elementos de seguridad pública o desde su presentación en función del citatorio respectivo, independientemente del tipo de infracción de que se trate, hasta el término del procedimiento administrativo que se instaure en su contra, ya sea por ejecución de sentencia o por ser puesto inmediatamente en libertad.
