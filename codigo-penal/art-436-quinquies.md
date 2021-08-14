@@ -1,5 +1,5 @@
 [N. DE E. EL PÁRRAFO SEGUNDO DEL TRANSITORIO CUARTO DEL ARTÍCULO SEGUNDO DEL DECRETO PUBLICADO EN LA OCTAVA SECCIÓN, DE P.O. 29 DE DICIEMBRE DE 2017 CONTENIDO EN LAS PÁGINAS DE LA 20 A LA 31, ESTABLECE QUE: "EL DELITO DE EVASIÓN DE PRESOS REFERIDO EN LOS ARTÍCULOS 167, 168, 169, 170, 171, 173, 174, 175, 176 Y 177, DEROGADOS POR ESTE DECRETO, NO SE EXTINGUEN, POR PERMANECER LA DESCRIPCIÓN DE LA CONDUCTA SANCIONADA PENALMENTE EN LOS ARTÍCULOS 436 SEXIES, 436 SEPTIES, 436 OCTIES, 436 NONIES, 436 DECIES, 436 UNDECIES, 436 DUODECIES Y 436 TERDECIES, EN EL MISMO ORDENAMIENTO LEGAL".]
 (ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 29 DE DICIEMBRE DE 2017)
 SECCION DECIMA PRIMERA.- EVASION DE PRESOS
-(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2017)
-Artículo 436 Quinquies.- Cuando el encargado de conducir o custodiar a un detenido, imputado o sentenciado, lo ponga indebidamente en libertad o proteja su evasión, será sancionado con prisión de tres meses a cinco años.
+(REFORMADO, P.O. 13 DE AGOSTO DE 2021)
+Artículo 436 Quinquies. Comete el delito de evasión de personas presas, el que favoreciere la fuga de una o más personas que se encuentren privadas de su libertad, al responsable de este delito, se le impondrá de tres años a ocho años de prisión.
