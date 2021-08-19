@@ -1,0 +1,4 @@
+P.O. 16 DE AGOSTO DE 2021.
+[N. DE E. TRANSITORIOS DEL "ACUERDO DE CABILDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 20 DE JULIO DE 2021, QUE APRUEBA EL DICTAMEN PRESENTADO POR LOS INTEGRANTES DE LA COMISIÓN DE REGLAMENTACIÓN MUNICIPAL, POR EL QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DEL CAPÍTULO 36 DEL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA".]
+PRIMERO. Las reformas y adiciones aprobadas en el presente Dictamen entrarán en vigor a partir del día hábil siguiente de su publicación en el Periódico Oficial del Estado de Puebla.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Dictamen.
