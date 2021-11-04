@@ -1,8 +1,12 @@
 (ADICIONADA CON EL ARTÍCULO QUE LO INTEGRAN, P.O. 18 DE MAYO DE 2011)
 SECCION SEXTA.- ESPIONAJE CONTRA LAS INSTITUCIONES DE SEGURIDAD PUBLICA Y PROCURACION DE JUSTICIA
+(REFORMADO PRIMER PÁRRAFO, P.O. 3 DE NOVIEMBRE DE 2021)
+Artículo 186 Octies.- A quien, con la intención de obstruir el desempeño legítimo de las instituciones de seguridad pública o de encubrir o facilitar un delito, aceche, vigile o realice actos tendentes a obtener información sobre la ubicación o actividades de los servidores públicos de las instituciones de seguridad pública o procuración de justicia, que realicen operativos, labores de seguridad pública, persecución, sanción de delitos o de ejecución de penas, se impondrá una pena de dos a seis años de prisión y multa de cincuenta a doscientas Unidades de Medida y Actualización.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
-Artículo 186 Octies.- A quien, con la intención de obstruir el desempeño legítimo de las instituciones de seguridad pública o de encubrir o facilitar un delito, aceche, vigile o realice actos tendentes a obtener información sobre la ubicación o actividades de los servidores públicos de las instituciones de seguridad pública o procuración de justicia, que realicen operativos, labores de seguridad pública, persecución, sanción de delitos o de ejecución de penas, se impondrá una pena de dos a seis años de prisión y multa de cincuenta a doscientos días de salario mínimo.
 Si la conducta prevista en el párrafo anterior se realiza en relación con operativos para combatir delitos de delincuencia organizada, secuestro, robo de vehículos, trata de personas o narcomenudeo, la pena será de cuatro a diez años de prisión.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
 Las penas previstas en los párrafos precedentes se aumentarán hasta una mitad más, cuando quien realice la conducta utilice un vehículo de servicio público de transporte, de transporte mercantil u otro que por sus características exteriores, haga parecer que se trata de vehículos destinados al servicio de transporte público, o de alguna institución de seguridad pública.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
 Si la información a que se refiere este artículo es transmitida a un tercero, por cualquier medio, la pena de prisión se aumentará hasta en un tercio de la sanción que corresponda.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
 Si el delito es cometido por servidor público o por quien haya pertenecido a las fuerzas armadas, instituciones de seguridad pública o de procuración de justicia, las penas señaladas se aumentarán desde un tercio hasta una mitad de la pena que corresponda y además se impondrá como sanción la destitución del cargo e inhabilitación de cinco a diez años para ocupar otro cargo en el servicio público.

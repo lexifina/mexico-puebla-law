@@ -1,2 +1,2 @@
-(REFORMADO Y REUBICADO, P.O. 16 DE ABRIL DE 2010)
-Artículo 198 Quáter.- Se impondrá pena de uno a tres años de prisión y multa de trescientos a dos mil días de salario, al prestador de servicios ambientales, profesionistas o técnicos en materia forestal que falte a la verdad, alterando documentos o emita dictámenes, estudios o resoluciones, que ocasionen daño a la salud pública, al medio ambiente o a los recursos naturales.
+(REFORMADO, P.O. 3 DE NOVIEMBRE DE 2021)
+Artículo 198 Quáter.- Se impondrá pena de uno a tres años de prisión y multa de trescientas a dos mil Unidades de Medida y Actualización, al prestador de servicios ambientales, profesionistas o técnicos en materia forestal que falte a la verdad, alterando documentos o emita dictámenes, estudios o resoluciones, que ocasionen daño a la salud pública, al medio ambiente o a los recursos naturales.

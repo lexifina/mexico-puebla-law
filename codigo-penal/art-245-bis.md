@@ -1,11 +1,18 @@
-(ADICIONADO, P.O. 6 DE NOVIEMBRE DE 2000)
-Artículo 245 Bis.- Se impondrá prisión de tres a nueve años y multa de ciento cincuenta a cuatrocientos días de salario:
+(REFORMADO PRIMER PÁRRAFO, P.O. 3 DE NOVIEMBRE DE 2021)
+Artículo 245 Bis.- Se impondrá prisión de tres a nueve años y multa de ciento cincuenta a cuatrocientas Unidades de Medida y Actualización:
 (REFORMADA, P.O. 4 DE ENERO DE 2012)
 I.- Al que produzca, imprima, enajene aun gratuitamente, distribuya o altere tarjetas, títulos, vales, documentos o instrumentos utilizados para el pago de bienes y servicios o para disposición de efectivo, sin consentimiento de quien esté facultado para ello;
+(ADICIONADA, P.O. 6 DE NOVIEMBRE DE 2000)
 II.- Al que adquiera, utilice o posea, tarjetas, títulos, documentos o instrumentos para el pago de bienes y servicios o para disposición de efectivo, a sabiendas de que son alterados o falsificados;
+(ADICIONADA, P.O. 6 DE NOVIEMBRE DE 2000)
 III.- Al que adquiera, utilice, posea o detente indebidamente, tarjetas, títulos o documentos auténticos para el pago de bienes y servicios o para disposición de efectivo, sin consentimiento de quien esté facultado para ello;
+(ADICIONADA, P.O. 6 DE NOVIEMBRE DE 2000)
 IV.- Al que altere, copie o falsifique los medios de identificación electrónica, cintas o dispositivos magnéticos de tarjetas, títulos, documentos o instrumentos para el pago de bienes y servicios o para disposición de efectivo; y
+(ADICIONADA, P.O. 6 DE NOVIEMBRE DE 2000)
 V.- Al que acceda indebidamente a los equipos y sistemas de cómputo o electromagnéticos de las Instituciones emisoras de tarjetas, títulos, documentos o instrumentos, para el pago de bienes y servicios o para disposición de efectivo.
+(ADICIONADO, P.O. 6 DE NOVIEMBRE DE 2000)
 Las mismas penas se impondrán, a quien utilice indebidamente información confidencial o reservada de la Institución o persona que legalmente esté facultada para emitir tarjetas, títulos, documentos o instrumentos para el pago de bienes y servicios o para disposición de efectivo.
+(ADICIONADO, P.O. 6 DE NOVIEMBRE DE 2000)
 Si el sujeto activo es empleado o dependiente del ofendido, las penas aumentarán en una mitad.
+(ADICIONADO, P.O. 6 DE NOVIEMBRE DE 2000)
 En caso de que se actualicen otros delitos con motivo de las conductas a que se refiere este artículo, se aplicarán las reglas del concurso.

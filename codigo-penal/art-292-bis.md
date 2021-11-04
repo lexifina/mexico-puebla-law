@@ -1,4 +1,5 @@
 (ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2014)
 Artículo 292 Bis.- Comete el delito de extorsión el que con ánimo de conseguir un lucro o provecho, amenazare a otro por cualquier medio con la finalidad de causar daños morales, físicos o patrimoniales, que afecten al amenazado o a persona física o jurídica con quien éste tuviere relaciones de cualquier orden que lo determinen a protegerlos.
-Al culpable de este delito se le impondrán de dos a diez años de prisión y multa de cien a mil días de salario.
+(REFORMADO, P.O. 3 DE NOVIEMBRE DE 2021)
+Al culpable de este delito se le impondrán de dos a diez años de prisión y multa de cien a mil Unidades de Medida y Actualización.
 Si el o los responsables del delito son o fueron servidores públicos o miembros de una institución de seguridad privada que en razón de su función utilizasen los medios o circunstancias que ésta le proporciona para la comisión del delito, se aumentará en dos tercios la pena que corresponda. Se impondrá además en el primer caso, la destitución del empleo, cargo o comisión público; en el segundo supuesto se estará a lo previsto en las leyes aplicables.
