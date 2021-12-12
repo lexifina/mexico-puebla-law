@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2021)
+Artículo 2335 Vicies. La elección de los ganadores de cada categoría será llevada a cabo por un Jurado que será integrado por tres personas de reconocido prestigio y experiencia en periodismo, medios digitales y derechos humanos, los cuales deberán cumplir con los requisitos que se establezcan en la Convocatoria que publique el consejo Ciudadano de Derechos Humanos, para tal efecto.
