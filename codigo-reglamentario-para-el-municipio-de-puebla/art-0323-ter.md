@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE MARZO DE 2022)
+Artículo 323 Ter.- Cuando el tiempo de estacionamiento de un vehículo sea igual o superior a seis horas, se procederá a su retiro e ingreso al Depósito Oficial de Vehículos correspondiente, donde se sujetará a los procedimientos que establezca la Dirección de Control de Tránsito. Los gastos ocasionados por dicho traslado serán pagados por el infractor, así como el monto por las horas excedentes por ocupar el espacio del Estacionamiento Rotativo.

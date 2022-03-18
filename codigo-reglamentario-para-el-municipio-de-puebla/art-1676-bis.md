@@ -2,8 +2,8 @@
 Artículo 1676 Bis.- Para efectos del presente Capítulo, se entenderá por:
 (REFORMADA, P.O. 30 DE MARZO DE 2009)
 I. Ayuntamiento: El Honorable Ayuntamiento del Municipio de Puebla;
-(REFORMADA, P.O. 30 DE MARZO DE 2009)
-II. Estacionómetro: Aparato y/o sistema de medición y control que se utiliza para regular el uso de estacionamiento en vía pública a través del cobro de una tarifa;
+(REFORMADA, P.O. 17 DE MARZO DE 2022)
+II. Estacionómetro: Sistema de medición mecánico, digital, virtual o electrónico que gestiona el cobro en relación con el tiempo en que un vehículo permanece estacionado en la vía pública.
 (REFORMADA, P.O. 30 DE MARZO DE 2009)
 III. Licencia: Es el documento que avala la autorización correspondiente que expida el Ayuntamiento del Municipio para prestar el servicio público de estacionamiento;
 (REFORMADA, P.O. 30 DE MARZO DE 2009)
