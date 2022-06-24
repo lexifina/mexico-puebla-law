@@ -1,0 +1,6 @@
+(REFORMADA SU DENOMINACIÓN [N. DE E. ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA], P.O. 23 DE JUNIO DE 2022)
+SECCION QUINTA.- DELITOS CONTRA EL LIBRE DESARROLLO DE LA SEXUALIDAD, EXPRESION E IDENTIDAD DE GENERO
+(ADICIONADO, P.O. 23 DE JUNIO DE 2022)
+Artículo 228 Quater.- Se impondrá de uno a tres años de prisión y de cincuenta a doscientas veces el valor diario de la Unidad de Medida y Actualización a quien someta, coaccione u obligue a otra persona a realizarse o recibir cualquier tipo de tratamiento, terapia o servicio, con o sin fines de lucro, con el objetivo de obstaculizar, restringir, impedir, menoscabar, anular o modificar la orientación sexual, identidad o expresión de género de una persona. Las mismas penas se impondrán a quienes apliquen dichos tratamientos, terapias o servicios.
+Los tratamientos, terapias o servicios a que se refiere el párrafo anterior son todas aquellas prácticas consistentes en sesiones psicológicas, psiquiátricas, métodos o procedimientos en los que empleando violencia física, moral, psicoemocional o cualquier otra, se obstaculice, restrinja, impida, menoscabe, anule o modifique la expresión o identidad de género, así como la orientación sexual de las personas.
+Este delito se perseguirá por querella.
