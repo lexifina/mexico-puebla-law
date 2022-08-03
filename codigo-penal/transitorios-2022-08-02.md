@@ -1,0 +1,4 @@
+P.O. 2 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA LA DENOMINACIÓN DE LA SECCIÓN PRIMERA, DEL CAPÍTULO DÉCIMO SÉPTIMO, DEL LIBRO SEGUNDO "GOLPES Y OTRAS VIOLENCIAS FÍSICAS" Y EL ARTÍCULO 355, DEL CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE PUEBLA.]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
