@@ -9,5 +9,7 @@ Comete el delito de violencia familiar el cónyuge; la cónyuge; concubino; conc
 A quien cometa el delito de violencia familiar, se le impondrán de dos a ocho años de prisión y multa de cincuenta hasta doscientas veces el valor diario de la Unidad de Medida y Actualización en el momento de la comisión del delito; y estará sujeto a tratamiento integral para su rehabilitación por un tiempo que no rebase la sanción privativa de la libertad que se haya impuesto, así como la pérdida de la patria potestad, de los derechos hereditarios y de alimentos.
 (REFORMADO, P.O. 23 DE JUNIO DE 2022)
 La penalidad descrita en el párrafo anterior se aumentará hasta en una mitad, en caso de que la víctima sea mayor de setenta años, niña, niño o adolescentes, personas con discapacidad, o mujer en periodo de gestación.
+(ADICIONADO, P.O. 3 DE AGOSTO DE 2022)
+Independientemente de lo establecido en el párrafo anterior, la pena podrá incrementarse hasta en un tercio, cuando de cometerse en contra de una niña, niño o adolescente, se realice utilizándoles como instrumento para causar daño a la madre.
 (ADICIONADO, P.O. 29 DE SEPTIEMBRE DE 2003)
 La Autoridad Judicial y el Ministerio Público, en su caso, dictará las medidas necesarias para el tratamiento psicoterapéutico del agresor y de la víctima, ordenando cuando sea procedente las medidas apropiadas para salvaguardar la integridad de sus familiares.
