@@ -8,12 +8,7 @@ Cuando la omisión sea de una obligación que se conozca de manera fehaciente la
 Si el contribuyente o responsable solidario presenta la declaración omitida antes de que se le haga efectiva la cantidad resultante conforme a lo previsto en esta fracción, queda liberado de hacer el pago determinado provisionalmente.
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
 Si la declaración se presenta después de haberse efectuado el pago provisional determinado por la Autoridad, éste se disminuirá del importe que se tenga que pagar con la declaración que se presente.
-(REFORMADA, P.O. 11 DE ABRIL DE 2003)
-II.- Imponer la multa que corresponda en los términos de este Código, por cada requerimiento no atendido.
-Para efectos del párrafo anterior, se estará a lo siguiente:
-La autoridad en ningún caso formulará más de tres requerimientos por una misma omisión.
-Para la presentación del documento omitido, se otorgarán los siguientes plazos:
-a).- Quince días para el primer requerimiento.
-b).- Seis días para el segundo y tercer requerimiento.
+(REFORMADA, P.O. 1 DE AGOSTO DE 2022)
+II.- Imponer la multa que corresponda en los términos de este Código y requerir hasta en tres ocasiones el cumplimiento de la obligación omitida, otorgando al contribuyente un plazo de quince días para el cumplimiento de cada requerimiento. Por cada requerimiento no atendido, se impondrán las multas correspondientes que, tratándose de declaraciones, será una multa por cada obligación omitida.
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 1995)
 III.- Embargar precautoriamente, los bienes o la negociación, en términos de los párrafos segundo y tercero del artículo 86 de este Código, cuando el contribuyente haya omitido presentar declaraciones en el último ejercicio o cuando no atienda tres requerimientos de la Autoridad en los términos de la fracción segunda de este artículo por una misma omisión, salvo tratándose de declaraciones en que bastará con no atender un requerimiento.
