@@ -1,0 +1,11 @@
+(ADICIONADO, P.O. 24 DE AGOSTO DE 2022)
+Artículo 20 Bis.- Son prioritarios y de interés público:
+I. Los programas de educación obligatoria;
+II. Las campañas de prevención y control de enfermedades transmisibles y los programas de atención médica;
+III. Los programas dirigidos a las personas en condiciones de pobreza, marginación o en situación de vulnerabilidad;
+IV. Los programas dirigidos a zonas de atención prioritaria;
+V. Los programas y acciones públicas para asegurar la alimentación nutritiva y de calidad y nutrición materno-infantil;
+VI. Los programas de abasto social de productos básicos;
+VII. Los programas de vivienda, los instrumentos y apoyos para que toda familia pueda disfrutar de una vivienda digna y decorosa;
+VIII. Los programas y fondos públicos destinados a la generación y conservación del empleo, a las actividades productivas sociales y a las empresas del sector social de la economía, y
+IX. Los programas y obras de infraestructura para agua potable, drenaje, electrificación, caminos y otras vías de comunicación, saneamiento ambiental y equipamiento urbano.
