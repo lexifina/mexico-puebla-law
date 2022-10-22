@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 16 DE ABRIL DE 2010)
-Artículo 199 Quáter.- La pena de prisión se incrementará hasta en una mitad más cuando las conductas previstas en la presente Sección, se realicen sobre áreas naturales protegidas o de preservación ecológica o en zonas no consideradas aptas para vivienda por los Planes y Programas de Desarrollo Urbano respectivos.
+(REFORMADO, P.O. 21 DE OCTUBRE DE 2022)
+Artículo 199 Quater. La pena de prisión se incrementará hasta en una mitad más cuando las conductas previstas en la presente Sección se realicen sobre áreas naturales protegidas o de preservación ecológica, en zonas no consideradas aptas para vivienda o en las que exista la probabilidad de que se produzca un daño por considerarse no aptas para vivienda por los Planes y Programas de Desarrollo Urbano respectivos.
