@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2022)
+Artículo 258 Bis.- Se impondrá de uno a cuatro años de prisión y multa de cincuenta a doscientas Unidades de Medida y Actualización, al responsable o encargado del establecimiento en que se preste (sic) servicios de atención a la salud mental o adicciones, sin contar con el aviso de funcionamiento respectivo, así como con el registro como institución especializada ante la Comisión Nacional contra las Adicciones.
