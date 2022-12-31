@@ -1,4 +1,2 @@
-(ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2018)
-Artículo 629 Bis.- Para obtener la licencia de funcionamiento de los establecimientos con el giro de Grúas, además de los requisitos establecidos en el inciso A del artículo 629, deberán cumplir con lo siguiente:
-a) Presentar la autorización del parque vehicular emitida por la autoridad competente.
-b) Póliza de Seguro con cobertura que ampare robo total, robo parcial, daños a la carga y daños por la carga, respecto de los vehículos recibidos para el traslado.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 629 Bis.- Por lo que respecta a los establecimientos que se dediquen a la compra venta de oro, cobre, monedas y metales, casas de empeño y personas físicas o sociedades mercantiles no regulados por Leyes Financieras, que en forma habitual o profesional realicen contrataciones u operaciones de mutuo con interés y garantía prendaria, deberán actualizar la licencia anualmente ante la Tesorería Municipal, además de refrendar el software de seguridad debidamente instalado, ante la compañía correspondiente encargada de operar el sistema.

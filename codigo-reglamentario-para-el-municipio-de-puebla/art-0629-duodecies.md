@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 629 Duodecies.- El Departamento de Licencias y Padrón de Contribuyentes a través de las instancias municipales legalmente establecidas para ello, está obligada a publicar en el sitio web del Ayuntamiento, durante el mes de febrero de cada año, la lista actualizada de las casas de empeño y compra venta de oro, cobre, monedas y metales, que cuentan con la autorización vigente de apertura para ejercer dicha actividad mercantil.

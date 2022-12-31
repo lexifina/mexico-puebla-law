@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 29 DE MAYO DE 2015)
-Artículo 633 Bis.- La Secretaría de Desarrollo Económico y Turismo, a través de la Dirección de Competitividad o a la Unidad Administrativa que se designe, podrá solicitar a la autoridad competente el registro o padrón de contribuyentes que refleje las actividades de apertura de negocios en el Municipio de Puebla, para efectos de generar estadísticas económicas, debiendo observar lo dispuesto en la Ley de Transparencia y Acceso a la Información Pública del Estado de Puebla y la Ley de Protección de Datos Personales en Posesión de los Sujetos Obligados del Estado de Puebla.
-DEL HORARIO
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 633 Bis.- Los establecimientos que refiere el presente Capítulo podrán ser objeto de visitas de verificación e inspección desde el inicio de sus operaciones.
+Las visitas de verificación y de inspección podrán hacerse acompañadas del personal del sector de salud estatal o federal, Seguridad Ciudadana, Protección Civil y Desarrollo Urbano.

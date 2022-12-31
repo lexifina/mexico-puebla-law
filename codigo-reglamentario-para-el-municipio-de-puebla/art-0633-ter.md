@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 633 Ter.- Las visitas de verificación y de inspección se entenderán con la persona Titular de la Licencia o su representante legal, o en su caso, con quien en el momento de la visita se ostente como persona encargada del establecimiento.
