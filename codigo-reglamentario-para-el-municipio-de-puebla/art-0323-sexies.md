@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 17 DE MARZO DE 2022)
-Artículo 323 Sexies.- A los vehículos que ocupen espacios destinados al Estacionamiento Rotativo y que no cuenten con placas de circulación, serán retirados y remitidos al Depósito Oficial de Vehículos.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 323 Sexies.- Para los vehículos o remolques, que ocupen cajones del Estacionamiento Rotativo y que no cuenten con placas de circulación o teniéndolas, estas se encuentren remachadas, soldadas o pegadas, o en el interior del vehículo o remolque, así como los que porten permisos para circular sin placas de circulación de cualquier Entidad Federativa, se aplicará el inmovilizador hasta por veinticuatro horas, y una vez finalizado este tiempo, si no se realiza el pago de la multa correspondiente, se procederá a su retiro e ingreso al Depósito de Vehículos. Los gastos ocasionados por dicho traslado serán pagados por el infractor.

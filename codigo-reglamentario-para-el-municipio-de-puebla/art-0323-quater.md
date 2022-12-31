@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 17 DE MARZO DE 2022)
-Artículo 323 Quater.- Todo vehículo que ocupe espacios destinados para el Estacionamiento Rotativo, deberá ser registrado mediante los medios establecidos, de lo contrario, será sujeto a la Infracción señalada en el correlativo al presente, en el Tabulador de Infracciones y Sanciones. Con la salvedad que deberá cubrir el importe generado por el tiempo de utilización.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 323 Quater.- Todo vehículo o remolque que ocupe espacios destinados para el Estacionamiento Rotativo, deberá contar con placas de circulación y ser registrado a través de los medios establecidos, de lo contrario, será sujeto a la Infracción señalada en el correlativo al presente en el Tabulador de Infracciones y Sanciones. Se exceptúan de dicho registro, los vehículos de emergencia (patrullas, ambulancias, bomberos y protección civil) en el ejercicio de sus funciones.

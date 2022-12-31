@@ -4,3 +4,5 @@ I. Multas digitales;
 II. Dispositivos de georreferencia;
 III. Medios audiovisuales; y
 IV. Instrumentos de grabación.
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2022)
+V. Dispositivos de cobro en el lugar del levantamiento de la infracción.

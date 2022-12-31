@@ -1,3 +1,2 @@
-(ADICIONADO, P.O. 17 DE MARZO DE 2022)
-Artículo 323 Duodecies.- Se destinará en la vía pública lugares de estacionamiento para personas con discapacidad, de acuerdo con lo dispuesto por el artículo 324 y demás relativos de este ordenamiento.
-Para hacer uso de estos cajones, los usuarios deberán portar las placas en su vehículo adecuadas al caso expedidas por la autoridad estatal competente.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 323 Duodecies.- Se destinará en la vía pública, lugares de estacionamiento exclusivos para vehículos que trasladen personas con discapacidad, siempre y cuando, dichos vehículos porten las placas destinadas a personas con discapacidad, expedidas por la autoridad competente.

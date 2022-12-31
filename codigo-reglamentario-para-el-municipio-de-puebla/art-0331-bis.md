@@ -1,3 +1,2 @@
-(ADICIONADO, P.O. 17 DE MARZO DE 2022)
-Artículo 331 Bis.- Las Personas Supervisoras de Movilidad deberán aplicar las infracciones respectivas, así como emitir la boleta de infracción y el retiro de la placa de circulación del vehículo como garantía de pago por contravenir lo relativo a las normas de funcionamiento del Estacionamiento Rotativo.
-De igual forma, se encuentran facultados para vigilar en forma permanente que las normas de movilidad competencia de la SEMOVINFRA, se respeten conforme a las disposiciones de este Capítulo, y en caso de advertir conductas irregulares, darán aviso a los Agentes de Tránsito o Policías Preventivos de Tránsito para que realicen la boleta de infracción respectiva.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 331 Bis.- Las Personas Supervisoras de Movilidad deberán aplicar las infracciones respectivas, así como emitir la boleta de infracción, colocar y retirar inmovilizadores a los vehículos infractores, así como el retiro de la placa de circulación del vehículo como garantía de pago por contravenir lo relativo a las normas de funcionamiento del Estacionamiento Rotativo.
