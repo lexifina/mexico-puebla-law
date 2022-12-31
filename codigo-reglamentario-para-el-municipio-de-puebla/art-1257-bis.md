@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2008)
-Artículo 1257 Bis.- La Agencia contará con un Padrón de Anuncios, el cual tiene por objeto proporcionar a la Autoridad Municipal, publicistas y anunciantes, información completa, confiable y oportuna.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 1257 Bis.- La Secretaría contará con un Padrón de Anuncios, el cual tiene por objeto proporcionar a la Autoridad Municipal, publicistas y anunciantes, información completa, confiable y oportuna.
+El Padrón de Anuncios deberá publicarse en los respectivos sitios oficiales de internet y en portales de transparencia del Ayuntamiento de conformidad con las leyes que rigen la materia.

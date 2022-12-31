@@ -1,0 +1,5 @@
+P.O. 30 DE DICIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "ACUERDO DE CABILDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 25 DE DICIEMBRE DE 2022, POR EL CUAL SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LOS CAPÍTULOS 18 DENOMINADO "ANUNCIOS" DEL LIBRO TERCERO "DESARROLLO URBANO SUSTENTABLE" Y DEL CAPÍTULO 26 DENOMINADO "DE DESARROLLO SUSTENTABLE EN MATERIA ECOLÓGICA Y PROTECCIÓN AL AMBIENTE NATURAL DEL MUNICIPIO DE PUEBLA" DEL LIBRO QUINTO DE "ECOLOGÍA", AMBOS DEL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA".]
+PRIMERO. La reforma, adición y derogación de diversas disposiciones de los Capítulos 18 y 26 del Código Reglamentario para el Municipio de Puebla entrarán en vigor al día siguiente de la publicación del presente Dictamen en el Periódico Oficial del Estado de Puebla.
+SEGUNDO. Se deja sin efectos el artículo CUARTO Transitorio del Decreto publicado en el Periódico Oficial del Estado el 11 de febrero de 2011, alusivo a Las Zonas Publicitarías que se señalan en el artículo 1254 fracción XLV.
+TERCERO. Se derogan todas las disposiciones que se opongan a lo establecido en el presente Dictamen.

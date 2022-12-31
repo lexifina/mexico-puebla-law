@@ -1,24 +1,4 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE ABRIL DE 2020)
-Artículo 1741 Sexties (sic).- Las infracciones de carácter administrativo a los preceptos contenidos en el presente Capítulo del Código Reglamentario para el Municipio de Puebla, serán sancionadas con una o más de las siguientes sanciones:
-(REFORMADA, P.O. 24 DE ABRIL DE 2020)
-I. Multa por el equivalente del valor diario de 5 a 400 unidades de medida y actualización, en el momento a imponer la sanción.
-(ADICIONADA, P.O. 24 DE MARZO DE 2014)
-II. Reparación del daño ocasionado.
-(ADICIONADA, P.O. 24 DE MARZO DE 2014)
-III. En caso grave, arresto administrativo hasta por 36 horas.
-(ADICIONADO, P.O. 24 DE MARZO DE 2014)
-Las sanciones a que se refiere este artículo, se aplicarán sin perjuicio de las sanciones penales que proceda.
-(ADICIONADO, P.O. 24 DE MARZO DE 2014)
-En los casos de reincidencia, el monto de la multa podrá ser hasta por dos veces el monto originalmente impuesto, sin exceder del doble del máximo permitido.
-(ADICIONADO [N. DE E. CON SUS FRACCIONES], P.O. 24 DE MARZO DE 2014)
-Para la imposición de las sanciones por infracciones a este Reglamento obligatoriamente se tomará en cuenta:
-I. La gravedad de la infracción considerando primordialmente los siguientes criterios:
-a) El daño ocasionado al área verde o a la vegetación.
-b) La afectación al patrimonio ecológico del Municipio.
-c) La degradación ecológica sufrida en el área.
-d) La especie de vegetación a la que ocasionó el daño (especies en peligro, tamaño, edad, estado de salud, etc).
-II. La condición socioeconómica del infractor en los términos que dispone el artículo 21 de la Constitución Política de los Estados Unidos Mexicanos.
-III. Si existe o no reincidencia.
-IV. Si la infracción o infracciones fueron cometidas intencionalmente o imprudencialmente, o si la infracción que se comprometió fue por omisión o por no cumplir alguna orden de autoridad competente.
-V. Si el infractor o infractores obtuvieron algún beneficio al cometer las infracciones.
-VI. Si el infractor actuó por órdenes o instrucciones de algún superior jerárquico.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2022)
+Artículo 1741 Sexties.- En las autorizaciones de poda o derribo en áreas públicas o privadas se establecerá que la restitución de la masa arbórea perdida, se cubrirá de la siguiente manera:
+I.- Número determinado de plantas y/o árboles en la cantidad y características que señale la Licencia, los cuales deberán ser entregados a alguno de los viveros municipales; y
+II.- Numerario equivalente al costo de las plantas y/o árboles que se requieren para compensar el impacto ecológico, que se ingresará a las cajas de la Tesorería Municipal en los términos señalados en la Ley de Ingresos del Municipio de Puebla, para el ejercicio fiscal correspondiente.
