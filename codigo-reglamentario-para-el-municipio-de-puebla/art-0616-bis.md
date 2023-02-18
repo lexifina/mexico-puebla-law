@@ -1,27 +1,15 @@
-(ADICIONADO, P.O. 1 DE JUNIO DE 2005)
-Artículo 616 Bis.- En los comercios señalados en el presente artículo queda estrictamente prohibida la venta de bebidas alcohólicas e ingreso de clientes a partir de las 2:00Hrs.
-(REFORMADA, P.O. 31 DE DICIEMBRE DE 2008)
-I. BILLARES CON VENTA DE BEBIDAS ALCOHÓLICAS EN BOTELLA ABIERTA;
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
-II. BOLICHE CON VENTA DE CERVEZA Y BEBIDAS REFRESCANTES CON UNA GRADUACIÓN ALCOHÓLICA DE 6º GL EN ENVASE ABIERTO;
-(REFORMADA, P.O. 31 DE DICIEMBRE DE 2008)
-III. SALÓN SOCIAL CON VENTA DE BEBIDAS ALCOHÓLICAS;
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
-IV. CLUBES DE SERVICIO, SOCIALES Y/O DEPORTIVOS;
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
-V. RESTAURANTE BAR;
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
-VI. BAR;
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
-VII. DISCOTECA; y
-(REFORMADA, P.O. 11 DE DICIEMBRE DE 2006)
-VIII. CABARET;
-IX. (DEROGADA, P.O. 11 DE DICIEMBRE DE 2006)
-X. (DEROGADA, P.O. 11 DE DICIEMBRE DE 2006)
-XI. (DEROGADA, P.O. 11 DE DICIEMBRE DE 2006)
-(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)
-XII. SALÓN DE ESPECTÁCULOS PÚBLICOS CON VENTA DE BEBIDAS ALCOHÓLICAS; Y
-(REFORMADA, P.O. 16 DE ABRIL DE 2019)
-XIII. SALA CON JUEGOS DE AZAR Y CASINOS PREVIA APROBACIÓN DE LA AUTORIDAD FEDERAL COMPETENTE Y ANUENCIA DEL CABILDO.
-Dichos comercios podrán permitir que sus clientes permanezcan hasta las 3:00 Hrs., sin venta de bebidas alcohólicas, hora en la que cerrarán sus comercios, quedando estrictamente prohibida la permanencia de clientes en el interior de los mismos.
+(REFORMADO, P.O. 17 DE FEBRERO DE 2023)
+Artículo 616 Bis.- Los establecimientos a lo que se refiere el presente artículo podrán funcionar con los siguientes horarios:
+I. BILLARES CON VENTA DE BEBIDAS ALCOHÓLICAS EN BOTELLA ABIERTA. De las 9:00 a las 02:00;
+II. BOLICHE CON VENTA DE CERVEZA Y BEBIDAS REFRESCANTES CON UNA GRADUACIÓN ALCOHÓLICA DE 6º GL EN ENVASE ABIERTO; De las 9:00 a las 02:00;
+III. SALÓN SOCIAL CON VENTA DE BEBIDAS ALCOHÓLICAS. De las 07:00 a las 02:00;
+IV. CLUBES DE SERVICIO, SOCIALES Y/O DEPORTIVOS. De las 07:00 a las 02:00;
+V. RESTAURANTE BAR. De las 07:00 a las 02:00;
+VI. BAR. De las 12:00 a las 02:00;
+VII. DISCOTECA. De las 18:00 a las 02:00;
+VIII. CABARET. De las 20:00 a las 02:00;
+IX. CERVECERÍA. De las 12:00 a las 02:00;
+X. SALÓN DE ESPECTÁCULOS PÚBLICOS CON VENTA DE BEBIDAS ALCOHÓLICAS. De las 07:00 a las 02:00, y
+XI. SALON DE JUEGOS DE AZAR Y CASINOS. De las 07:00 a las 02:00.
+Los comercios señalados en el presente artículo podrán permitir que sus clientes permanezcan hasta las 3:00 horas, sin venta de bebidas alcohólicas, hora en la que cerrarán sus comercios, quedando estrictamente prohibida la permanencia de clientes en el interior de los mismos.
 DE LAS SANCIONES

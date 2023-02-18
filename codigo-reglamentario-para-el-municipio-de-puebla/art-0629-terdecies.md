@@ -1,18 +1,24 @@
-(ADICIONADO [N. DE E. REFORMADO Y REUBICADO ANTES ARTÍCULO 631], P.O. 30 DE DICIEMBRE DE 2022)
-Artículo 629 Terdecies.- La persona titular de la Licencia a que se refiere este Capítulo, podrá cederla hasta dos veces por cada ejercicio fiscal a cualquier persona que reúna los requisitos inherentes, o cambiar de giro comercial, obligándose aquel, a dar aviso a la Tesorería Municipal a través del Departamento de Licencias y Padrón de Contribuyentes de la Dirección de Ingresos, bajo los siguientes requisitos:
-l (sic). Transferencia o cesión de la licencia de funcionamiento:
-a) Formato de transferencia de la persona propietaria;
-b) Licencia de funcionamiento original expedida por la Tesorería Municipal a través del Departamento de Licencias y Padrón de Contribuyentes;
-c) Alta de Hacienda de la nueva persona propietaria;
-d) Baja de Hacienda de la persona anterior propietaria;
-e) Identificación oficial de ambas personas contribuyentes. Para el caso de realizar el trámite a través de un tercero éste deberá observar lo establecido en el artículo 38 del Código Fiscal y Presupuestario para el Municipio de Puebla;
-f) Acta constitutiva y Poder Notarial, para personas morales;
-g) Acta de Cesión de derechos ante Notario Público; y
-h) Comprobante de pago de derechos que procedan, conforme a lo establecido en la Ley de Ingresos del Municipio de Puebla, para el Ejercicio Fiscal vigente.
+(REFORMADO, P.O. 17 DE FEBRERO DE 2023)
+Artículo 629 Terdecies.- El titular de la Licencia a que se refiere este Capítulo, podrá cederla hasta dos veces por cada ejercicio fiscal a cualquier persona que reúna los requisitos inherentes, o cambiar de giro comercial, bajo los siguientes requisitos, de acuerdo a la modalidad del trámite:
+I. Cambio de propietario o cesión de la licencia de funcionamiento
+A. Trámite presencial:
+a) Licencia de funcionamiento, expedida por la Tesorería Municipal;
+b) Acuse de Apertura de establecimiento o sucursal ante el Servicio de Administración Tributaria y/o Constancia de Situación Fiscal, del nuevo propietario;
+c) Identificación oficial vigente de ambos contribuyentes;
+d) Cesión de Derechos ratificada y protocolizada ante Notario Público, y
+e) Copia simple del comprobante de pago de derechos que procedan, conforme a lo establecido en la Ley de Ingresos del Municipio de Puebla para el Ejercicio Fiscal en curso.
+B. Trámite en línea:
+a) Acuse de Apertura de establecimiento o sucursal ante el Servicio de Administración Tributaria y/o Constancia de Situación Fiscal, del nuevo propietario;
+b) Cesión de Derechos ratificada y protocolizada ante Notario Público, y
+c) Pago de derechos que procedan, conforme a lo establecido en la Ley de Ingresos del Municipio de Puebla para el Ejercicio Fiscal en curso.
 II. Cambio de giro comercial:
-a) Formato de cambio del giro comercial;
-b) Dictamen de Compatibilidad de Uso de Suelo expedido por la Unidad Administrativa competente;
-c) Licencia de Funcionamiento original expedida por la Tesorería Municipal a través del Departamento de Licencias y Padrón de Contribuyentes;
-d) Aviso en Hacienda de cambio de giro comercial; y
-e) Comprobante de pago de derechos que procedan, conforme a lo establecido en la Ley de Ingresos del Municipio de Puebla, para el Ejercicio Fiscal vigente.
-La Tesorería Municipal a través del Departamento de Licencias y Padrón de Contribuyentes entregará los formatos a que se refiere el presente artículo, no pudiendo solicitar requisito adicional alguno a los expresamente mencionados en el presente artículo, de lo contrario incurrirá en responsabilidad administrativa.
+A. Trámite presencial:
+a) Licencia de Uso de Suelo Especifico expedido por la Unidad Administrativa competente;
+b) Licencia de Funcionamiento expedida por la Tesorería Municipal a través del Departamento de Licencias y Padrón de Contribuyentes;
+c) Identificación oficial vigente;
+d) Acuse de Cambio de giro ante el Servicio de Administración Tributaria, y
+e) Copia simple del comprobante de pago de derechos que procedan, conforme a lo establecido en la Ley de Ingresos del Municipio de Puebla para el Ejercicio Fiscal en curso.
+B. Trámite en línea:
+a) Licencia de Uso de Suelo Especifico expedido por la Unidad Administrativa competente;
+b) Acuse de Cambio de giro ante el Servicio de Administración Tributaria, y
+c) Pago de derechos que procedan, conforme a lo establecido en la Ley de Ingresos del Municipio de Puebla para el Ejercicio Fiscal en curso.
