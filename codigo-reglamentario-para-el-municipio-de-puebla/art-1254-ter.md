@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2022)
+(REFORMADO PRIMER PÁRRAFO [N. DE E. REPUBLICADO], P.O. 28 DE AGOSTO DE 2023)
 Artículo 1254 Ter.- Corresponde a la Secretaría:
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)
 I. La ejecución de planes en materia de anuncios en el Municipio;
@@ -22,8 +22,8 @@ IX. Establecer los lineamientos para la generación de placas o folios de identi
 X. Establecer los lineamientos para la generación de Zonas Publicitarias en el Municipio;
 (REFORMADA, P.O. 9 DE OCTUBRE DE 2019)
 XI. Establecer y difundir las especificaciones que debe tener cada anuncio nuevo, estableciendo, en su caso, períodos de transición hasta uniformar las características de los mismos y cerciorase de que no contengan publicidad sexista, violencia mediática, simbólica o incite cualquier otro tipo de violencia contra las mujeres;
-(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)
-XII. Proponer a la Secretaría de Gestión los instrumentos necesarios para coordinar y homologar programas en materia de anuncios con los Municipios conurbanos;
+(REFORMADA, P.O. 28 DE AGOSTO DE 2023)
+XII. Proponer los instrumentos necesarios para coordinar y homologar programas en materia de anuncios con los Municipios conurbados;
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)
 XIII. Adoptar las medidas necesarias para el adecuado aprovechamiento de espacios publicitarios, bajo criterios equitativos, de transparencia, legalidad y de igualdad en el acceso a los anunciantes, propietarios, poseedores, y/o titulares de anuncios, garantizando el acceso público, permanente y sin formalidades, a la información sobre la oferta de espacios;
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 2008)
