@@ -1,0 +1,9 @@
+P.O. 5 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE DERECHOS, CULTURA Y DESARROLLO DE LOS PUEBLOS Y COMUNIDADES INDÍGENAS DEL ESTADO DE PUEBLA".]
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. Dentro del plazo de dos años, a partir de la entrada en vigor de este Decreto, el Instituto diseñará el mecanismo que permita la conformación del catálogo de Pueblos y Comunidades Indígenas del Estado.
+CUARTO. Los Centros Coordinadores de Pueblos Indígenas, serán sustituidos por las Oficinas de Representación del Instituto Poblano de Pueblos Indígenas, atendiendo a las disposiciones administrativas y presupuestales que resulten aplicables.
+QUINTO. El Titular del Poder Ejecutivo, expedirá el Reglamento Interior del Instituto Poblano de los Pueblos Indígenas, aprobado por la Junta de Gobierno del Instituto, en un plazo no mayor a ciento veinte días naturales contados a partir de la entrada en vigor del presente Decreto.
+SEXTO. El Instituto Poblano de los Pueblos Indígenas, en cumplimiento a las medidas de racionalidad y eficiencia para el ejercicio del gasto, realizará las adecuaciones legales y administrativas para la aplicación del presente Decreto y estará sujeto a la suficiencia presupuestaria del ejercicio fiscal que corresponda.
+SÉPTIMO. Los Poderes Ejecutivo, Legislativo y Judicial, así como los Ayuntamientos del Estado, deberán considerar de manera paulatina y progresiva en sus programas presupuestarios a partir del Ejercicio Fiscal 2025 y subsecuentes, las acciones y actividades que en el ámbito de sus respectivas competencias resulten necesarias para dar cumplimiento a lo dispuesto en el presente Decreto.
