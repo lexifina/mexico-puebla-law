@@ -8,4 +8,6 @@ En su establecimiento deberán considerarse los siguientes aspectos:
 a) La existencia de un tributo o contribución a cargo del beneficiario del estímulo;
 b) Una situación especial del contribuyente establecida en abstracto por la disposición legal y que al concretarse da origen al derecho del contribuyente para exigir su otorgamiento; y
 c) Un objeto de carácter parafiscal que consta de un objetivo directo y un objetivo indirecto. El objetivo directo consistirá en obtener una actuación específica del contribuyente, y como indirecto lograr, mediante la conducta del propio gobernado, efectos que trasciendan de su esfera personal al ámbito social.
-Los incentivos fiscales, que sean aprobados por el Cabildo, no tendrán como origen la existencia de una obligación fiscal exigible y sus objetivos serán siempre de beneficio colectivo.
+(DEROGADO CUARTO PÁRRAFO, P.O. 18 DE DICIEMBRE DE 2023)
+(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)
+Los estímulos o incentivos fiscales entrarán en vigor a partir de su publicación en la Gaceta Municipal.
