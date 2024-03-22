@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 21 DE MARZO DE 2024)
+Artículo 474 Quinquies. Se impondrá de uno a cuatro años de prisión y multa de cien a cuatrocientas Unidades de Medida y Actualización vigente al momento en que se cometa el delito, a quien o quienes practiquen actos sexuales con animales, tales como introducción por vía vaginal, anal o bucal del miembro viril o cualquier parte del cuerpo u objeto en un animal.
