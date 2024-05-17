@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2022)
-ARTÍCULO 92 BIS. Las autoridades educativas promoverán, en todo proceso educativo, contenidos no estereotipados de las mujeres y de los hombres, evitando la realización de concursos, certámenes, elecciones o cualquier otra forma de competencia en la que se evalúe, de forma integral o parcial, la belleza o la apariencia física de niñas, niños y adolescentes.
