@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 9 DE DICIEMBRE DE 2013)
-Artículo 199 Septies.- La sanción establecida en el párrafo primero del artículo anterior, se aumentará hasta en una mitad cuando la venta o suministro de bebidas alcohólicas se haga a menores de edad, o se encuentren adulteradas.
+(REFORMADO, P.O. 16 DE JULIO DE 2024)
+Artículo 199 Septies.- A la persona que venda, distribuya, suministre bebidas alcohólicas sin la licencia o el permiso correspondiente, fuera de los horarios establecidos en la Ley para la Venta y Suministro de Bebidas Alcohólicas del Estado de Puebla, se le impondrá de seis meses a seis años de prisión y multa de cien a mil Unidades de Medida y Actualización.
