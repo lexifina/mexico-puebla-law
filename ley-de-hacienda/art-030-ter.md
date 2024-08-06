@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE AGOSTO DE 2024)
+ARTÍCULO 30 Ter. Para efectos de este Capítulo, se entiende por plataforma digital, a la aplicación electrónica de servicios de hospedaje que la persona física, persona moral o la unidad económica, administradora del programa informático, opera en su carácter de gestor, intermediario, promotor, facilitador o cualquier otra actividad análoga, para permitir a los usuarios contratar servicios ele hospedaje en inmuebles con terceros, ubicados en el territorio del Estado de Puebla.
