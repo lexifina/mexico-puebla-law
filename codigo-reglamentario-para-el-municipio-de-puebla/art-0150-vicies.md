@@ -1,0 +1,9 @@
+(ADICIONADO, P.O. 4 DE SEPTIEMBRE DE 2024)
+Artículo 150 VICIES. Deberá estar integrada por al menos cinco personas, de la manera siguiente:
+I. Una persona Titular de la Presidencia, que sea parte de la Comisión Permanente y que cuente con experiencia en la naturaleza de la Comisión Especial;
+II. Una persona Titular de la Secretaría Técnica: que será designada por la persona Presidenta de la Comisión Especial
+III. Cuando menos tres personas invitadas que cuenten con conocimiento y experiencia afín a la naturaleza de la Comisión Especial correspondiente, mismos que podrán ser:
+a. Titulares de Dependencias o Entidades del orden federal, estatal y/o municipal.
+b. Personas representantes de los Sectores de la Sociedad, relacionados con el objetivo de la Comisión Especial, de quienes su experiencia profesional y práctica comprobada se alinee a la naturaleza de la Comisión Especial correspondiente.
+Los cargos de las Comisiones Especiales serán de carácter honorífico, por lo que no recibirán compensación o emolumento alguno.
+DE LAS SANCIONES
