@@ -3,8 +3,8 @@ Artículo 236 Bis.- Del trabajo a favor de la comunidad.
 I. (DEROGADA, P.O. 5 DE JULIO DE 2021)
 (REFORMADA, P.O. 5 DE JULIO DE 2021)
 II. Las actividades del trabajo a favor de la comunidad, se desarrollarán de acuerdo a la tabla de cálculo que se menciona en el inciso f) del artículo 236 Quáter. En ningún caso podrán realizarse dentro de la jornada laboral de la persona infractora;
-(REFORMADA, P.O. 5 DE JULIO DE 2021)
-III. La Jueza o Juez de Justicia Cívica con base a las circunstancias del infractor, señalara los días, horas y lugares en que se llevarán a cabo las actividades del trabajo a favor de la comunidad y sólo hasta la ejecución de las mismas, se tomará como cumplida la sanción de que se trate;
+(REFORMADA, P.O. 16 DE OCTUBRE DE 2024)
+III. La persona juzgadora con base a las circunstancias de la persona infractora, señalará los días, horas y lugares en que se llevarán a cabo las actividades del trabajo a favor de la comunidad y sólo hasta la ejecución de las mismas, se tomará como cumplida la sanción de que se trate;
 (DEROGADO SEGUNDO PÁRRAFO, P.O. 5 DE JULIO DE 2021)
 (REFORMADO, P.O. 5 DE JULIO DE 2021)
 El programa deberá garantizar que las personas sancionadas, presten sus servicios en organismos gubernamentales o instituciones, tomando en cuenta los usos y costumbres de la comunidad a que pertenezca y se deberá informar del cumplimiento respectivo.

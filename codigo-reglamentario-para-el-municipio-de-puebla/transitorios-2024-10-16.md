@@ -1,0 +1,5 @@
+P.O. 16 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "ACUERDO DE CABILDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 13 DE SEPTIEMBRE DE 2024, POR EL QUE APRUEBA EL DICTAMEN PRESENTADO POR LOS REGIDORES INTEGRANTES DE LA COMISIÓN DE SEGURIDAD, JUSTICIA Y PROTECCIÓN CIVIL, POR EL QUE REFORMA Y DEROGA DIVERSAS DISPOSICIONES DEL CAPÍTULO 9 DEL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA, EN ARMONIZACIÓN DEL MODELO HOMOLOGADO DE JUSTICIA CÍVICA".]
+PRIMERO. La presente reforma entrará en vigor, a partir de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. La Sindicatura Municipal y la Secretaría de Seguridad Ciudadana del Municipio de Puebla, en un lapso de 90 días naturales, contados a partir de la entrada en vigor del presente Dictamen actualizarán la normatividad administrativa que instrumenta las acciones, estrategias y lineamientos bajo los cuales se regirá la Justicia Cívica de conformidad con la presente reforma.
+TERCERO. Se dejan sin efecto todas aquellas disposiciones administrativas que se opongan a lo dispuesto en el presente Dictamen.
