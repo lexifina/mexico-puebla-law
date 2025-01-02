@@ -9,7 +9,8 @@ V.- En contra de sanciones impuestas por algún órgano del instituto o de un pa
 VI.- Se vulnere el derecho a la información o el derecho de petición en materia político-electoral; y
 VII.- En contra de los actos y resoluciones que violenten el derecho para integrar las autoridades electorales del Estado.
 El Tribunal tiene que garantizar la tutela jurisdiccional de los derechos político-electorales de las y los ciudadanos que participen en los procesos electorales que se celebren en el Estado.
-El plazo para la interposición del juicio será de tres días contados a partir del día siguiente a aquel en (sic) se tenga conocimiento del acto que se recurre.
+(REFORMADO, P.O. 4 DE OCTUBRE DE 2024)
+El plazo para la interposición del juicio será de cuatro días contados a partir del día siguiente a aquel en (sic) se tenga conocimiento del acto que se recurre.
 Tratándose de controversias relacionadas con los asuntos internos de los partidos políticos éstas serán resueltas por los órganos establecidos en sus estatutos para tales efectos, debiendo resolver en tiempo para garantizar los derechos de los militantes. Solo una vez que se agoten los medios partidistas de defensa los militantes tendrán derecho de acudir ante el Tribunal.
 En el caso de que se acredite, que agotar los medios partidistas de defensa, pueda causar un perjuicio de imposible reparación en el goce de esos derechos o requieran de mayores requisitos a los establecidos en el presente ordenamiento, no será necesario agotar el principio de definitividad.
 Las resoluciones que recaigan a los juicios para la protección de los derechos políticos electorales del ciudadano local serán definitivas e inatacables.
