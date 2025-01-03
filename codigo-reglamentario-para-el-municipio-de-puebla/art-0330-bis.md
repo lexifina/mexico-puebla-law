@@ -31,7 +31,7 @@ XIV. En los casos en que se pretenda abrir, operar o modificar un estacionamient
 El estacionamiento de vehículos en inmuebles distintos a la Vía Pública estará permitido siempre que el inmueble y el prestador del servicio cumplan las condiciones y requisitos municipales en materia de desarrollo urbano y construcciones; y
 (REFORMADA [N. DE E. ADICIONADA], P.O. 17 DE MARZO DE 2022)
 XV. Supervisar la operación y correcto funcionamiento del Estacionamiento Rotativo.
-(ADICIONADA, P.O. 17 DE MARZO DE 2022)
-XVI. Realizar las infracciones respectivas y retener la placa de circulación como garantía de pago por las situaciones previstas por el uso indebido del Estacionamiento Rotativo.
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2024)
+XVI. Realizar las infracciones respectivas, reteniendo placa de circulación como garantía de pago y en su caso, la colocación de inmovilizadores por las situaciones previstas por el uso indebido del Estacionamiento Rotativo o por no contar con el permiso de carga y descarga que le permita realizar estas maniobras.
 (ADICIONADA [N. DE E. REUBICADA], P.O. 17 DE MARZO DE 2022)
 XVII. Las demás que les confieran este Capítulo, así como las disposiciones que resulten aplicables y los convenios celebrados con aprobación del Ayuntamiento.
