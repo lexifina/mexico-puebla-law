@@ -1,0 +1,4 @@
+P.O. 11 DE ABRIL DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO DEL HONORABLE CONGRESO DEL ESTADO, POR EL QUE REFORMA EL CUARTO PÁRRAFO DEL ARTÍCULO 201, EL PRIMER PÁRRAFO DEL 202 Y EL 324 SEXIES Y SE ADICIONA LA FRACCIÓN VIII BIS, AL ARTÍCULO 2, EL 15 BIS, UN QUINTO PÁRRAFO AL 201, RECORRIÉNDOSE EN EL ORDEN LOS SUBSECUENTES Y EL 208 BIS, TODOS DEL CÓDIGO DE INSTITUCIONES Y PROCESOS ELECTORALES DEL ESTADO DE PUEBLA".]
+PRIMERO. El presente Decreto deberá publicarse en el Periódico Oficial del Estado y entrará en vigor una vez que entren en vigor las disposiciones constitucionales en materia de la diputación migrante, en términos del artículo transitorio vigésimo sexto del Decreto del Congreso del Estado por el que se reforman, adicionan y derogan diversas disposiciones de la Constitución Política del Estado Libre y Soberano de Puebla, en materia judicial, entre otros.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
