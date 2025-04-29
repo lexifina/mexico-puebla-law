@@ -1,0 +1,5 @@
+P.O. 29 DE ABRIL DE 2025.
+[N. DE E TRANSITORIOS DEL "ACUERDO DE CABILDO DEL HONORABLE AYUNTAMIENTO DEL MUNICIPIO DE PUEBLA, DE FECHA 16 DE ABRIL DE 2025, QUE APRUEBA EL DICTAMEN PRESENTADO POR LAS Y LOS REGIDORES INTEGRANTES DE LA COMISIÓN DE GOBERNACIÓN, POR EL QUE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CAPÍTULO 9 DEL CÓDIGO REGLAMENTARIO PARA EL MUNICIPIO DE PUEBLA, EN ARMONIZACIÓN A LA EMISIÓN DE MEDIDAS U ÓRDENES DE PROTECCIÓN DE NATURALEZA ADMINISTRATIVA ESTABLECIDA EN LA LEY GENERAL DE ACCESO A LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA".]
+PRIMERO. La presente reforma entrará en vigor, a partir de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. La Sindicatura Municipal en un lapso de 90 días naturales, contados a partir de la entrada en vigor del presente Dictamen actualizarán la normatividad administrativa que instrumenta las acciones, estrategias y lineamientos bajo los cuales se regirá la Justicia Cívica de conformidad con la presente reforma.
+TERCERO. Se dejan sin efecto todas aquellas disposiciones administrativas que se opongan a lo dispuesto en el presente Dictamen.
