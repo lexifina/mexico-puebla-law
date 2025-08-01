@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 6 DE DICIEMBRE DE 2019)
-ARTICULO 33-A.- Los fedatarios públicos que conforme a las disposiciones fiscales se encuentren obligados a determinar y enterar contribuciones a cargo de terceros, podrán hacerlo mediante cheques certificados de su cuenta o de las cuentas personales de los contribuyentes, siempre que cumplan con los requisitos que mediante Reglas de Carácter General dicte la Secretaría de Planeación y Finanzas.
+(REFORMADO, P.O. 31 DE JULIO DE 2025)
+ARTICULO 33-A. Los fedatarios públicos que conforme a las disposiciones fiscales se encuentren obligados a determinar y enterar contribuciones a cargo de terceros, podrán hacerlo mediante cheques certificados de su cuenta o de las cuentas personales de los contribuyentes, siempre que cumplan con los requisitos que mediante Reglas de Carácter General dicte la Secretaría de Planeación, Finanzas y Administración.

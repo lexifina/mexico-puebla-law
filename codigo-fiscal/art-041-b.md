@@ -1,7 +1,7 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2011)
 ARTICULO 41-B.- Las autoridades fiscales, a petición de los deudores, podrán autorizar el pago a plazos, ya sea diferido o en parcialidades, de las contribuciones omitidas, productos o aprovechamientos y de sus accesorios, sin que dicho plazo exceda de doce meses para pago diferido y de treinta y seis meses para pago en parcialidades, siempre y cuando se cumplan con los siguientes requisitos:
-(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 6 DE DICIEMBRE DE 2019)
-I.- Se presente solicitud de autorización, por escrito ante la Secretaría de Planeación y Finanzas.
+(REFORMADA, P.O. 31 DE JULIO DE 2025)
+I. Se presente solicitud de autorización, por escrito ante la Secretaría de Planeación, Finanzas y Administración.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2013)
 La modalidad del pago a plazos elegida por el contribuyente podrá modificarse para el crédito de que se trate por una sola ocasión, siempre y cuando el plazo en su conjunto no exceda del plazo máximo establecido en el presente artículo.
 (REFORMADA, P.O. 18 DE DICIEMBRE DE 2006)
