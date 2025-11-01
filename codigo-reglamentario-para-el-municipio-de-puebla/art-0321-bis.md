@@ -1,2 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL ACUERDO QUE MODIFICA EL ORDENAMIENTO.
-Artículo 321 Bis.- (DEROGADO, P.O. 2 DE MARZO DE 2015)
+(REFORMADO [N. DE E. ADICIONADO], P.O. 29 DE OCTUBRE DE 2025)
+Artículo 321 Bis.- Toda persona que desarrolle una actividad con motivo del mantenimiento preventivo, correctivo o la instalación de cualquier servicio público o privado, que afecte el libre tránsito sobre la vía pública, deberá de estar plenamente identificada y portar elementos que distingan a simple vista la dependencia o empresa a la que pertenezcan.
