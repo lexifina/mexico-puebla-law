@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 5 DE AGOSTO DE 2024)
 ARTÍCULO 30 Quáter. Las personas físicas, las personas morales y las unidades económicas a que se refiere el presente Apartado, tendrán las siguientes obligaciones:
-I. Solicitar la inscripción en el Registro Estatal de Contribuyentes como retenedor del impuesto, ante cualquiera de las Oficinas Recaudadoras y de Orientación y Asistencia al Contribuyente o a través de los medios electrónicos autorizados, dentro de los diez días hábiles siguientes a la fecha en que se coloquen en la hipótesis de la retención del impuesto, de acuerdo con las Reglas de Carácter General que emita la Secretaría de Planeación y Finanzas y, que se publiquen en el Periódico Oficial del Estado;
+(REFORMADO PRIMER PÁRRAFO, P.O. 20 DE FEBRERO DE 2026)
+I. Solicitar la inscripción en el Registro Estatal de Contribuyentes como retenedor del impuesto, ante cualquiera de las Oficinas Recaudadoras y de Orientación y Asistencia al Contribuyente o a través de los medios electrónicos autorizados, dentro de los diez días hábiles siguientes a la fecha en que se coloquen en la hipótesis de la retención del impuesto, de acuerdo con las Reglas de Carácter General que emita la Secretaría de Planeación, Finanzas y Administración y, que se publiquen en el Periódico Oficial del Estado;
 Para efectos de la inscripción a través de medios electrónicos, el contribuyente deberá contar con su firma electrónica (FIEL), expedida por el Servicio de Administración Tributaria.
 II. Retener el impuesto que se cause conforme a las disposiciones contenidas en esta Ley.
 La retención se efectuará en el momento en que se pague la contraprestación por los servicios contratados.
