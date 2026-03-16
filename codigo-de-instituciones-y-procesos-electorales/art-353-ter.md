@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 15 DE MARZO DE 2026)
+ARTÍCULO 353 Ter.- Durante el proceso electoral de las personas juzgadoras del Poder Judicial del Estado, serán procedentes los medios de impugnación previstos en este Título, conforme a las reglas siguientes:
+I. El recurso de revisión, durante la etapa de preparación de la elección, para impugnar actos u omisiones de los órganos desconcentrados del Instituto relacionados con dicho proceso;
+II. El recurso de apelación, para impugnar actos u omisiones del Consejo General, de la Presidencia del Consejo General o de la Secretaría Ejecutiva del Instituto, vinculados con la organización de la elección de personas juzgadoras; y
+III. El recurso de inconformidad, exclusivamente durante la etapa de resultados y declaración de validez, para controvertir los resultados consignados en las actas de cómputo, las determinaciones sobre el otorgamiento de constancias de mayoría y la declaración de validez de la elección de personas juzgadoras del Poder Judicial del Estado.
