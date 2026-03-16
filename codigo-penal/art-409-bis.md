@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 3 DE NOVIEMBRE DE 2021)
-Artículo 409 Bis.- A quienes dirijan la invasión y su autor o autores intelectuales, la sanción de prisión será de siete a doce años y multa de mil a tres mil Unidades de Medida y Actualización.
+(REFORMADO, P.O. 15 DE MARZO DE 2026)
+Artículo 409 Bis.- Al que financie o dirija la invasión, así como a la persona autora o personas autoras intelectuales, se les sancionará con prisión de siete a quince años y multa de mil a tres mil Unidades de Medida y Actualización.
