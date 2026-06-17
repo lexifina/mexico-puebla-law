@@ -8,5 +8,5 @@ III. La reeducación de la persona agresora con perspectiva de género en instit
 La fracción III de este artículo implica que el sujeto activo asista a los programas de reeducación que impartan los Centros de Reeducación para personas agresoras, conforme sus modelos de atención, previamente acreditados.
 (REFORMADO [N. DE E. ADICIONADO], P.O. 10 DE MARZO DE 2021)
 Una vez cumplidas las condiciones convenidas ante el Ministerio Público, incluida la reeducación del sujeto activo en la forma en que establece este artículo, procederán los efectos del restablecimiento indemnatos.
-(REFORMADO [N. DE E. ADICIONADO], P.O. 10 DE MARZO DE 2021)
-Lo anterior no se aplicará a víctimas con dictamen psicológico que revelen sometimiento psicológico respecto de su agresor, niñas, niños y adolescentes, mujeres embarazadas, personas con discapacidad ni mayores de sesenta años.
+(REFORMADO, P.O. 16 DE JUNIO DE 2026)
+Lo anterior no se aplicará a víctimas con dictamen psicológico que revele sometimiento psicológico respecto de su agresor, niñas, niños y adolescentes, mujeres embarazadas, personas con discapacidad, ni personas adultas mayores.
