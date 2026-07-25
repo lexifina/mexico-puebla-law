@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 22 DE JULIO DE 2026)
+Artículo 2335 Tervicies.- El Premio Municipal en Gestión de Riesgos y Protección Civil, consistirá en una presea diseñada especialmente para tal efecto y un diploma signado por las personas titulares de la Presidencia Municipal, Secretaría del Ayuntamiento y Regiduría de la Comisión de Protección Civil, que serán entregados en Acto Protocolario o en Sesión del Consejo Municipal de Gestión de Riesgos y Protección Civil del Honorable Ayuntamiento del Municipio de Puebla, por Acuerdo del Consejo de Premiación, preferentemente en el marco de la conmemoración del Día Nacional de la Protección Civil
+La convocatoria deberá ser emitida al menos un mes antes de la premiación o cuando el Consejo de Premiación lo determine.
