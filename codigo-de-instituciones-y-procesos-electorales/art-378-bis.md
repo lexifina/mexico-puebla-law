@@ -2,7 +2,10 @@
 ARTÍCULO 378 BIS.- Independientemente de las causales de nulidad de elección expresadas en el artículo anterior, serán causales de nulidad de elección por violaciones graves, dolosas y determinantes las siguientes:
 I.- Se exceda el gasto de campaña en un cinco por ciento del monto total autorizado;
 II.- Se compre o adquiera cobertura informativa o tiempos en radio y televisión, fuera de los supuestos previstos en la ley;
-III.- Se reciban o utilicen recursos de procedencia ilícita o recursos públicos en las campañas.
+(REFORMADA, P.O. 28 DE JULIO DE 2026)
+III.- Se reciban o utilicen recursos de procedencia ilícita o recursos públicos en las campañas;
+(ADICIONADA, P.O. 28 DE JULIO DE 2026)
+IV.- Se acrediten actos de intervención o injerencia extranjera que influyan en los resultados electorales.
 Dichas violaciones deberán acreditarse de manera objetiva y material. Se presumirá que las violaciones son determinantes cuando la diferencia entre la votación obtenida entre el primero y el segundo lugar sea menor al cinco por ciento.
 En caso de nulidad de la elección, se convocará a una elección extraordinaria, en la que no podrá participar la persona sancionada.
 Se entenderán por violaciones graves, aquellas conductas irregulares que produzcan una afectación sustancial a los principios constitucionales en la materia y pongan en peligro el proceso electoral y sus resultados.
