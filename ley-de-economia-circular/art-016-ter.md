@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE AGOSTO DE 2026)
+Artículo 16 Ter. La implementación de la Responsabilidad Extendida del Productor en el Estado se realizará de conformidad con lo previsto en la Ley General, la Ley General para la Prevención y Gestión Integral de los Residuos, la Ley para la Prevención y Gestión Integral de los Residuos Sólidos Urbanos y de Manejo Especial para el Estado de Puebla y demás disposiciones jurídicas aplicables.

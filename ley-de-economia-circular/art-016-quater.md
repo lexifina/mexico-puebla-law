@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE AGOSTO DE 2026)
+Artículo 16 Quáter. Las autoridades competentes, en el ámbito de sus respectivas atribuciones, promoverán y facilitarán la implementación de la Responsabilidad Extendida del Productor y el desarrollo de la economía circular mediante acciones de coordinación con la Federación, los municipios, los sectores productivos, las instituciones académicas, los organismos coordinadores y demás actores involucrados.
