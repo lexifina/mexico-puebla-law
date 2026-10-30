@@ -1,0 +1,11 @@
+{
+  "path": "mx-pue",
+  "code": "MX-PUE",
+  "name": "Puebla",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-puebla-law",
+  "build": "built: constitution, codes and laws (56 ordenamientos, 819 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
